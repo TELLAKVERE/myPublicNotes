@@ -46,6 +46,17 @@ Lisaks veel:
 - wikipedia
 - rohelised.ee/volikogu
 
+## Johanna Maria Tõugu
 
+* 10.01.2024 SDE liige
   
-
+- wiki
+- Linkedin
+- err, ohtuleht, postimees, delfi
+- tallinn.ee
+- rohelised.ee 
+- youtube
+- muurileht.ee
+- bioneer.ee
+- noored.eu
+  
