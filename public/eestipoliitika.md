@@ -5,7 +5,21 @@ kuupäev: 07.01.2024, uuendatud 07.01.2024
 ---
 teema: Eesti poliitika, kohalikud valimised
 
+# Reformierakond 
 
+
+Reformierakonna suurim, 2373 liikmega Tallinna piirkond valis laupäeval toimunud üldkogul uueks esimeheks riigikogu liikme ja Tallinna linnavolikogu Reformierakonna fraktsiooni esimehe 
+
+## Pärtel-Peeter Pere
+
+Sirlis Sõmer-Kull
+Enn Listra
+Kristo Enn Vaga
+Viljar Jaamu
+Maris Lauri
+Õnne Pillak
+Andres Sutt
+Hanah Lahe
 
 # Parempoolsed
 
