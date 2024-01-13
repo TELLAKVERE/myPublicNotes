@@ -1,4 +1,15 @@
 
+# 13.01.2024 Igavad valimised
+
+Hinnang: Vähemalt esimesest voorust ei ole üllatist loota. Halla - Aho on tugev kandidaat (mehed, PS), aga kas ta suudab rahvahulki liigutada. Kahtlen. 
+
+Või siiski, kui vaaata nö "Austraalia vaaenurgast" - mehed toetavad, PS toetus, tugevad ja selged välispoliitika seisukohad. 
+
+# 13.01.2024 Venemaa, tsaar ja Soome poliitika lähiajalugu
+
+Heiti Hautala (rohelised) tagasivaade, hea, et praeguste valimiste konteksti mõista ja ega kõike ise enam ei mäleta täpselt. Kes, mida, millal ütles. 
+
+https://www.iltalehti.fi/politiikka/a/1bbb1be0-3b1c-4df0-ae8c-95e63b3cc5bf
 
 #  28.12.2023 "Valin halvimaist vähem halva"
 
