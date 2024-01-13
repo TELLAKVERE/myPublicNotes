@@ -1,7 +1,7 @@
 
 ---
 pealkiri: Tallinna piirkond
-kuupäev: 07.01.2024, uuendatud 07.01.2024
+kuupäev: 07.01.2024, uuendatud 13.01.2024
 ---
 teema: Eesti poliitika, kohalikud valimised
 
