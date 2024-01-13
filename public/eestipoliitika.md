@@ -7,9 +7,6 @@ teema: Eesti poliitika, kohalikud valimised
 
 # Reformierakond 
 
-
-Reformierakonna suurim, 2373 liikmega Tallinna piirkond valis laupäeval toimunud üldkogul uueks esimeheks riigikogu liikme ja Tallinna linnavolikogu Reformierakonna fraktsiooni esimehe 
-
 ## Pärtel-Peeter Pere
 
 Sirlis Sõmer-Kull
