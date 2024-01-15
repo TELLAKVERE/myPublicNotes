@@ -1,7 +1,7 @@
 
 # 15.01.2024 6x 
 
-Vahelduseks viitan Olli Rehni seisukohtadele, kõik on realistlikud tegevused- 
+Vahelduseks viitan Olli Rehni (Kokoomus) seisukohtadele, kõik on realistlikud tegevused, mida ellu viia. 
 
 https://twitter.com/ollirehn/status/1746523655868129684
 
