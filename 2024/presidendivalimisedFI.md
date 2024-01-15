@@ -1,4 +1,14 @@
 
+# 15.01.2024 6x 
+
+Vahelduseks viitan Olli Rehni seisukohtadele, kõik on realistlikud tegevused- 
+
+https://twitter.com/ollirehn/status/1746523655868129684
+
+# 15.01.2024 Suusahüpetest
+
+Tsitaat Jari Korkkilt mustread.fi portaalis: "Keski-Euroopan mäkiviikko on ollut piinallista seurattavaa, mutta onneksi sentään edes presidentinvaaleissa toiselle kierrokselle näyttää menevän kaksi suomalaista"- 
+
 # 13.01.2024 Igavad valimised
 
 Hinnang: Vähemalt esimesest voorust ei ole üllatist loota. Halla - Aho on tugev kandidaat (mehed, PS), aga kas ta suudab rahvahulki liigutada. Kahtlen. 
