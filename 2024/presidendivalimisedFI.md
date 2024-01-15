@@ -138,7 +138,7 @@ Veel kontekstist, tegemist IL intervjuuga (Lauri Nurmi).
 
 # 18.11.2023 Valimiste ajagraafik
 
-28.jaanuar järgmine aasta esimsee vooru valimispäev, 11.veebruar teise vooru valimispäev.
+28.jaanuar järgmine aasta esimese vooru valimispäev, 11.veebruar teise vooru valimispäev.
 https://vaalit.fi/aikataulut-presidentinvaalissa
 
 # 18.11.2023 Stubb ja Haavisto, Stubb ees
