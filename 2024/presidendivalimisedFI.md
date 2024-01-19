@@ -1,4 +1,24 @@
 
+# 19.01.2024 Ühendajatest ja võitlejatest
+
+Annely Arrase vaade. "Haavistot võib pidada empaatiliseks ühendajaks ja Stubbi julgeks võimendajaks. Haavisto ühendab Soome, Stubb võitleb Euroopa eest."
+
+https://www.err.ee/1609223469/annika-arras-eestlane-vaatab-kuidas-soomlane-valib-presidenti
+
+Lisaks: 
+
+*Laias laastus võib osalejad lüüa kaheks: esimeses grupis on kogenud ja traditsiooniliste parteide poliitikud... ning teises liigas n-ö kinda viskajad traditsioonilisele parteiväljale ehk Põlissoomlaste juht Jussi Halla-aho ...*
+
+Ei saa nõus olla, kui niivõrd palju "puusse pannakse".  PS on peavoolu erakond, pikalt olnud parlamendis. 
+
+*Kandidaadid on aktiivsed Tiktokis, Instagramis, Facebookis jm.*
+
+... ja Twitteris. Facebook ja politika on rohkem Eesti nähtus. 
+
+See vist ütleb rohkem kirjutaja kohta midagi, kui Twitterit ignoreeritakse ja JHA peetakse kõrvalise poliitsuuna esindajaks. 
+
+
+
 # 19.01.2024 Kahekordsetest kodanikest
 
 Soome poliitikud on öeldnud ajalooliselt Venemaa kontekstis üht ja teist. Nüüd on hea tagantjärgi viidata nendele sõnadele. Mida see annab? Midagi, inimesel sh ka poliitikul on õigus oma vaateid muuta.
