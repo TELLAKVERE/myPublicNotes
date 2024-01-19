@@ -1,7 +1,7 @@
 
 # 19.01.2024 Ühendajatest ja võitlejatest
 
-Annely Arrase vaade. "Haavistot võib pidada empaatiliseks ühendajaks ja Stubbi julgeks võimendajaks. Haavisto ühendab Soome, Stubb võitleb Euroopa eest."
+Annika Arrase vaade. "Haavistot võib pidada empaatiliseks ühendajaks ja Stubbi julgeks võimendajaks. Haavisto ühendab Soome, Stubb võitleb Euroopa eest."
 
 https://www.err.ee/1609223469/annika-arras-eestlane-vaatab-kuidas-soomlane-valib-presidenti
 
