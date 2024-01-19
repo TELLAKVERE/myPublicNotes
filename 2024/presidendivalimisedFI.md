@@ -3,11 +3,9 @@
 
 Soome poliitikud on öeldnud ajalooliselt Venemaa kontekstis üht ja teist. Nüüd on hea tagantjärgi viidata nendele sõnadele. Mida see annab? Midagi, inimesel sh ka poliitikul on õigus oma vaateid muuta.
 
-```
-– Itse olen nähnyt, että on ollut erittäin hyviä seurausvaikutuksia. Siitä on ollut hyötyä, Stubb vakuutti esimerkiksi Ylen haastattelussa elokuussa 2014 ja lisäsi, että kaksois­kansalaisuuksia on noin puolella maailman maista ja noin puolella EU-maista.
+__ – Itse olen nähnyt, että on ollut erittäin hyviä seurausvaikutuksia. Siitä on ollut hyötyä, Stubb vakuutti esimerkiksi Ylen haastattelussa elokuussa 2014 ja lisäsi, että kaksois­kansalaisuuksia on noin puolella maailman maista ja noin puolella EU-maista.
 
-VENÄJÄ oli miehittänyt Krimin saman vuoden helmikuussa.
-```
+VENÄJÄ oli miehittänyt Krimin saman vuoden helmikuussa.'__
 
 https://www.is.fi/politiikka/art-2000010125821.html
 
