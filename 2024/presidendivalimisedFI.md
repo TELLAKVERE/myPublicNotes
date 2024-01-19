@@ -1,4 +1,16 @@
 
+# 19.01.2024 Kahekordsetest kodanikest
+
+Soome poliitikud on öeldnud ajalooliselt Venemaa kontekstis üht ja teist. Nüüd on hea tagantjärgi viidata nendele sõnadele. Mida see annab? Midagi, inimesel sh ka poliitikul on õigus oma vaateid muuta.
+
+'''
+– Itse olen nähnyt, että on ollut erittäin hyviä seurausvaikutuksia. Siitä on ollut hyötyä, Stubb vakuutti esimerkiksi Ylen haastattelussa elokuussa 2014 ja lisäsi, että kaksois­kansalaisuuksia on noin puolella maailman maista ja noin puolella EU-maista.
+
+VENÄJÄ oli miehittänyt Krimin saman vuoden helmikuussa.
+'''
+
+https://www.is.fi/politiikka/art-2000010125821.html
+
 # 15.01.2024 6x 
 
 Vahelduseks viitan Olli Rehni (Kokoomus) seisukohtadele, kõik on realistlikud tegevused, mida ellu viia. 
