@@ -9,7 +9,7 @@ https://www.iltalehti.fi/politiikka/a/07ce0749-df18-4430-8a8f-f2152d8c95e8
 
 # 21.01.2024 Armutusest
 
-Iltalehti on armutu, sedakord Olli Rehni (Keskusta) vastu, tuues detailselt esile Venemaa suhted ja heites valgusvihku lähiajaloole. 
+Iltalehti on armutu, seekord Olli Rehni (Keskusta) vastu, tuues detailselt esile Venemaa suhted ja heites valgusvihku lähiajaloole. 
 
 Mis on tore, 12 punkti Iltalehti toimetus. Aitäh. 
 
