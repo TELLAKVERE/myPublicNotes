@@ -1,4 +1,13 @@
 
+# 21.01.2024 Armutusest
+
+Iltalehti on armutu, sedakord Olli Rehni (Keskusta) vastu, tuues detailselt esile Venemaa suhted ja heites valgusvihku  lähiajaloole. 
+
+Mis on tore, 12 punkti Iltalehti toimetus. Aitäh. 
+
+https://www.iltalehti.fi/politiikka/a/422d1671-669a-46c6-95e6-3abb6e7459c2
+
+
 # 19.01.2024 Ühendajatest ja võitlejatest
 
 Annika Arrase vaade. "Haavistot võib pidada empaatiliseks ühendajaks ja Stubbi julgeks võimendajaks. Haavisto ühendab Soome, Stubb võitleb Euroopa eest."
@@ -23,7 +32,8 @@ See vist ütleb rohkem kirjutaja kohta midagi, kui Twitterit ignoreeritakse ja J
 
 Soome poliitikud on öeldnud ajalooliselt Venemaa kontekstis üht ja teist. Nüüd on hea tagantjärgi viidata nendele sõnadele. Mida see annab? Midagi, inimesel sh ka poliitikul on õigus oma vaateid muuta.
 
-*Itse olen nähnyt, että on ollut erittäin hyviä seurausvaikutuksia. Siitä on ollut hyötyä, Stubb vakuutti esimerkiksi Ylen haastattelussa elokuussa 2014 ja lisäsi, että kaksois­kansalaisuuksia on noin puolella maailman maista ja noin puolella EU-maista.*
+*
+Itse olen nähnyt, että on ollut erittäin hyviä seurausvaikutuksia. Siitä on ollut hyötyä, Stubb vakuutti esimerkiksi Ylen haastattelussa elokuussa 2014 ja lisäsi, että kaksois­kansalaisuuksia on noin puolella maailman maista ja noin puolella EU-maista.*
 
 *VENÄJÄ oli miehittänyt Krimin saman vuoden helmikuussa.*
 
