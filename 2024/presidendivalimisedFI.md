@@ -1,5 +1,7 @@
 
+# 21.01.2024 Valereklaamidest
 
+https://twitter.com/DimitriQvintus/status/1749005652360356153
 
 # 21.01.2024 SDPst
 
