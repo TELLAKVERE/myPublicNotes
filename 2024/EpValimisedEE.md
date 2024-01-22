@@ -17,7 +17,7 @@ Võiks mõõta nõuete üldarvu, aga mõned nõuded on keerukamad, mõned lihtsa
 
 Võib mõõta keerukamate nõuete puhul, nagu tuleohutus, üldist raha- ja ajakulu perioodis. 
 
-**Kes, millal, miks**
+# Kes, millal, miks
 
 Kes: toivo.ellakvere@gmail.com
 Millal: 2024
