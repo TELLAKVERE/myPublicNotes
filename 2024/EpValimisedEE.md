@@ -1,7 +1,7 @@
 
 **Europarlamendi valimistest**
 
-# 22.01.2024 Ettevõtjatest ja Europaralmendist
+# 22.01.2024 Ettevõtjatest ja Europarlamendist
 
 Alustuseks siis hoopis suurem vaade. Postkasti potsatas "European Entrepreneurs Newsletter". Uhke. "Support Our Electoral Platform: A European Real Economy for a Realistic Industry Policy."
 
