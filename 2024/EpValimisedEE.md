@@ -5,6 +5,8 @@
 
 Alustuseks siis hoopis suurem vaade. Postkasti potsatas "European Entrepreneurs Newsletter". Uhke. "Support Our Electoral Platform: A European Real Economy for a Realistic Industry Policy."
 
+Organisatsiooniks, mis on selle taga, siis www.sme2b.eu, htekel töötab veel veebileht https://sme2b.european-entrepreneurs.org/ 
+
 Seal punkt, et "Reduce bureaucratic burdens through the ... "1 new law in, 2 out" [principle]."
 
 See on tobe nõue, umbes nagu töötulemust mõõta tundides või programmeerija käest küsida, mitu rida koodi ta kirjutas. 
