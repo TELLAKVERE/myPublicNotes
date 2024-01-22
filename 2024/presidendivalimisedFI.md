@@ -1,7 +1,9 @@
 
 # 21.01.2024 Valereklaamidest
 
-https://twitter.com/DimitriQvintus/status/1749005652360356153
+https://twitter.com/DimitriQvintus/status/1749005652360356153'
+
+https://yle.fi/a/74-20070529
 
 # 21.01.2024 SDPst
 
