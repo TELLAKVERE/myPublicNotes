@@ -1,4 +1,16 @@
 
+# 23.01.2024 JHOst
+
+ERR on uudise pealkirjastanud, nagu JHA-l oleks veel võimalus tulle kahe esimse hulka. ERR:"Halla-aho toetus on tõusuteel", HS: "Halla-ahon kannatus kovassa nousussa"
+
+Kahtlane, vähetõenäoline. Mingi tõenäosus on olemas, aga väike. Pigem sellel põhjusel, kui PS senised toetajad on arvamusuuuringutes oma eelistuste kohta valeinfot edastanud. 
+
+https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/presidendivalimisedFI.md#13012024-igavad-valimised
+
+Minu jaoks huvitavam detail, et  Sari Essayah toetus väiksem isegi Mika Aaltola toetusest. 
+
+https://www.err.ee/1609230402/soome-valimised-halla-aho-toetus-on-tousuteel
+
 # 21.01.2024 Valereklaamidest
 
 https://twitter.com/DimitriQvintus/status/1749005652360356153'
