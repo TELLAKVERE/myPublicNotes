@@ -1,5 +1,5 @@
 
-# 23.01.2024 JHOst
+# 23.01.2024 JHAst
 
 ERR on uudise pealkirjastanud, nagu JHA-l oleks veel võimalus tulle kahe esimse hulka. ERR:"Halla-aho toetus on tõusuteel", HS: "Halla-ahon kannatus kovassa nousussa"
 
