@@ -6,6 +6,10 @@ HS debatt, teisipäeval
 
 https://www.hs.fi/politiikka/art-2000010088994.html
 
+Yle debatt neljapäeval
+
+https://areena.yle.fi/1-66656233
+
 Valimiste uudised Yle-s
 
 https://yle.fi/t/18-345446/fi
