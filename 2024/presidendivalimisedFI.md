@@ -6,6 +6,8 @@ Nüüd on üllatavalt Soome ajakirjanduses ja  twitteris spekulatsioonipasunad j
 
 https://www.iltalehti.fi/politiikka/a/27d91030-523b-4f49-8387-650cea8a5ac3
 
+https://twitter.com/ToermaeEki/status/1749746618654462026
+
 Kas JHA võib saada teise vooru? Jah ikka, valija otsustab, usaldusküsitlused on teatud veamarginaaliga. 
 
 Kas AS võib teisest voorust välja jääda? Jah ikka, valija otsustab, näiteks hääled liiguvad JHA-le. 
