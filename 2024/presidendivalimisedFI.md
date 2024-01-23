@@ -1,4 +1,15 @@
 
+
+# 23.01.2024 Debattidest
+
+HS debatt, teisipäeval
+
+https://www.hs.fi/politiikka/art-2000010088994.html
+
+Valimiste uudised Yle-s
+
+https://yle.fi/t/18-345446/fi
+
 # 23.01.2024 JHAst
 
 ERR on uudise pealkirjastanud, nagu JHA-l oleks veel võimalus tulle kahe esimse hulka. ERR:"Halla-aho toetus on tõusuteel", HS: "Halla-ahon kannatus kovassa nousussa"
