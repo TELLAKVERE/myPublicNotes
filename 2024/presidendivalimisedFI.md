@@ -3,7 +3,7 @@
 
 ERR on uudise pealkirjastanud, nagu JHA-l oleks veel võimalus tulle kahe esimse hulka. ERR:"Halla-aho toetus on tõusuteel", HS: "Halla-ahon kannatus kovassa nousussa"
 
-Kahtlane, vähetõenäoline. Mingi tõenäosus on olemas, aga väike. Pigem sellel põhjusel, kui PS senised toetajad, kes peavoolumeediat ja arvamusagentuure ei usalda, on uuuringutes oma eelistuste kohta valeinfot edastanud. 
+Kahtlane, vähetõenäoline. Mingi tõenäosus on olemas, aga väike. Pigem sellel põhjusel, kui PS senised toetajad, kes peavoolumeediat ja arvamusagentuure ei usalda, on uuringutes oma eelistuste kohta valeinfot edastanud. 
 
 https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/presidendivalimisedFI.md#13012024-igavad-valimised
 
