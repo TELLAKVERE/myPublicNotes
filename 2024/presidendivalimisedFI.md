@@ -1,6 +1,6 @@
 
 
-# 23.02.2024 Spekulatsioonidest
+# 23.01.2024 Spekulatsioonidest
 
 Nüüd on üllatavalt Soome ajakirjanduses ja  twitteris spekulatsioonipasunad ja -trummid täiel häälel undama  pandud. Siis pasunad undama ja trummid põrisema.  
 
