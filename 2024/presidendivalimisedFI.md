@@ -6,7 +6,7 @@ HS debatt, teisipäeval https://www.hs.fi/politiikka/art-2000010088994.html
 
 Yle debatt neljapäeval https://areena.yle.fi/1-66656233
 
-Eelnevad debatide Areenas https://areena.yle.fi/1-65769734
+Eelnevad debatid Areenas https://areena.yle.fi/1-65769734
 
 Nt viimane usutlus Stubbiga https://yle.fi/a/74-20069986
 
