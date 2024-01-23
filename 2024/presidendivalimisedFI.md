@@ -2,17 +2,15 @@
 
 # 23.01.2024 Debattidest
 
-HS debatt, teisipäeval
+HS debatt, teisipäeval https://www.hs.fi/politiikka/art-2000010088994.html
 
-https://www.hs.fi/politiikka/art-2000010088994.html
+Yle debatt neljapäeval https://areena.yle.fi/1-66656233
 
-Yle debatt neljapäeval
+Eelnevad debatide Areenas https://areena.yle.fi/1-65769734
 
-https://areena.yle.fi/1-66656233
+Nt viimane usutlus Stubbiga https://yle.fi/a/74-20069986
 
-Valimiste uudised Yle-s
-
-https://yle.fi/t/18-345446/fi
+Valimiste uudised Yle-s https://yle.fi/t/18-345446/fi
 
 # 23.01.2024 JHAst
 
