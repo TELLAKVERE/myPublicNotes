@@ -1,5 +1,23 @@
 
 
+# 23.02.2024 Spekulatsioonidest
+
+Nüüd on üllatavalt Soome ajakirjanduses ja  twitteris spekulatsioonipasunad ja -trummid täiel häälel undama  pandud. Siis pasunad undama ja trummid põrisema.  
+
+https://www.iltalehti.fi/politiikka/a/27d91030-523b-4f49-8387-650cea8a5ac3
+
+Kas JHA võib saada teise vooru? Jah ikka, valija otsustab, usaldusküsitlused on teatud veamarginaaliga. 
+
+Kas AS võib teisest voorust välja jääda? Jah ikka, valija otsustab, näiteks hääled liiguvad JHA-le. 
+
+Üks on selge, 3 tugevaimat ehk poulaarseimat kandidaati on AS, PH ning JHA. 
+
+Mõned tsitaadid artiklist: 
+
+"Jos veikkaukset sallitaan, luulisin, että kolme kärkiehdokasta ovat sunnuntaina hyvin lähellä toisiaan, ja on täysin mahdotonta sanoa tässä vaiheessa, ketkä kaksi nousevat kakkoskierrokselle."
+
+"Vaikka kakkosella olisi Halla-ahoa vastassa isoisäni villasukka, villasukasta tulisi tasavallan seuraava presidentti."
+
 # 23.01.2024 Debattidest
 
 HS debatt, teisipäeval https://www.hs.fi/politiikka/art-2000010088994.html
