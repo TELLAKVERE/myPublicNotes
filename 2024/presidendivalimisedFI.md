@@ -5,6 +5,10 @@ Tundmatu, kuid kindlasti mitte hall.
 
 Ei hakka Halla-aho seisukohti ka ennem teist vooru lähemalt kajastama, AS ja PH vaadete ja seisukohtade jälgimine on juba suur töö. Võibolla kui ta saab teise vooru. 
 
+https://twitter.com/Halla_aho
+
+https://www.halla-aho.com/scripta/
+
 # 25.01.2024 "Valin halvimaist vähem halva"
 
 Kordan on juba eelnevalt tehtud loogilist ja matemaatilist arutluskäiku. Kahe esimene kandidaadi toetus kokku ca 50%.
