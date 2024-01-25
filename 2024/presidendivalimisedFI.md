@@ -1,4 +1,18 @@
+# 25.01.2024 Stubb, Haavisto, Halla-aho
 
+"Pajunen lisab, et pole selge, kes pääseb valimiste teise vooru, sest esikolmiku toetuse tase on liiga sarnane."
+
+Meediale meeldib spekukpeeria, meeldivad konfliktid ja hämused asjad. Uurijad peavadki kordama, et tulemused on veamarginaali piires. 
+
+Aga eeldusel, et uuring peegeldab hääletamis, siis teises voorus on AS ning PH. 
+
+Kas peegeldab? 
+
+ERR jätab välja toomata eelistuseta vastanute osakaalu, mis on kõrge. ERR. YLE EN: "Samuti kasvas eelistuseta valijate osakaal, neid on nüüd tervelt 15 protsenti." YLE FI: "Jännitystä lisää, että kannastaan epävarmojen äänestäjien osuus on joulukuusta selvästi kasvanut, 10–15 prosenttiyksikköä. Heitä on nyt vajaat 25 prosenttia äänestäjistä."
+
+Yle: https://yle.fi/a/74-20071134 https://yle.fi/a/74-20071122
+
+ERR: https://www.err.ee/1609232442/halla-aho-toetus-tousis-jarsult-ka-yle-viimases-kusitluses
 
 # 23.01.2024 Spekulatsioonidest
 
