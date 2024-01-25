@@ -1,3 +1,7 @@
+# 25.01.2024 Vahefiniš pühapäeval
+
+Täna siis järjekordne YLE debatt. 
+
 # 25.01.2024 Stubb, Haavisto, Halla-aho
 
 "Pajunen lisab, et pole selge, kes pääseb valimiste teise vooru, sest esikolmiku toetuse tase on liiga sarnane."
