@@ -1,7 +1,7 @@
 
 # 25.01.2024 "Valin halvimaist vähem halva"
 
-Kordan on juba eelnevalt tehtud loogilist ja matmaatilist arutelukäiku. Kahe esimene kandidaadi toetus kokku ca 50%.
+Kordan on juba eelnevalt tehtud loogilist ja matemaatilist arutluskäiku. Kahe esimene kandidaadi toetus kokku ca 50%.
 
 See tähendab aga, et iga teine valija peab teises voorus tegema valiku mitte oma esmase eelistuse alusel ("valin parima"), vaid oma teisese eelistuse alusel ("valin halvimaist vähem halva"). 
 
