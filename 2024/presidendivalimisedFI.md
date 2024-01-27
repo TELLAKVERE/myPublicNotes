@@ -11,6 +11,10 @@ Ei tahaks sellest rääkida, tagasiside somes on olnud hävitav. Tundub, et ajak
 
 https://twitter.com/Faktabaari/status/1751149356277805246
 
+## ERR Helsingis
+
+AA poolt intervjuu Anderssoni (Vasakliit) toetajate ja  Haavistoga (rohelised)
+
 # 25.01.2024 Tundmatu Halla-aho 
 
 Tundmatu, kuid kindlasti mitte hall. 
