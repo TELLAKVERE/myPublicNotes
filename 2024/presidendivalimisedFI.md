@@ -19,6 +19,12 @@ AA (ERR) poolt intervjuu Anderssoni (Vasakliit) toetajate ja  Haavistoga (roheli
 
 JHA: https://twitter.com/Halla_aho/status/1751297890125779009
 
+MA: https://twitter.com/MikaAaltola/status/1751178278377828442
+
+## Välismeedia
+
+FT: https://www.ft.com/content/ae26e6fe-59ea-4ee4-b531-a5e05b357261 
+
 # 25.01.2024 Tundmatu Halla-aho 
 
 Tundmatu, kuid kindlasti mitte hall. 
