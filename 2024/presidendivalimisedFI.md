@@ -87,6 +87,8 @@ Nt viimane usutlus Stubbiga https://yle.fi/a/74-20069986
 
 Valimiste uudised Yle-s https://yle.fi/t/18-345446/fi
 
+Debatid kokkuvõtlikult https://www.iltalehti.fi/politiikka/a/6ea8c3ab-5fcc-4c97-addd-de656f011d13
+
 # 23.01.2024 JHAst
 
 ERR on uudise pealkirjastanud, nagu JHA-l oleks veel võimalus tulle kahe esimse hulka. ERR:"Halla-aho toetus on tõusuteel", HS: "Halla-ahon kannatus kovassa nousussa"
