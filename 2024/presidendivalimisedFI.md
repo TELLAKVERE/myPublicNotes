@@ -11,9 +11,13 @@ Ei tahaks sellest rääkida, tagasiside somes on olnud hävitav. Tundub, et ajak
 
 https://twitter.com/Faktabaari/status/1751149356277805246
 
-## ERR Helsingis
+## AA Helsingis
 
-AA poolt intervjuu Anderssoni (Vasakliit) toetajate ja  Haavistoga (rohelised)
+AA (ERR) poolt intervjuu Anderssoni (Vasakliit) toetajate ja  Haavistoga (rohelised)
+
+## Tagasivaates
+
+JHA: https://twitter.com/Halla_aho/status/1751297890125779009
 
 # 25.01.2024 Tundmatu Halla-aho 
 
