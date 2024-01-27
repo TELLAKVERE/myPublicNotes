@@ -1,5 +1,9 @@
 
-# 25.01.2024 tundmatu Halla-aho
+# 27.01.2024 Valimispäeva eelõhtu
+
+... Soome keeles siis "vaalipäivän aatto"
+
+# 25.01.2024 Tundmatu Halla-aho
 
 Tundmatu, kuid kindlasti mitte hall. 
 
