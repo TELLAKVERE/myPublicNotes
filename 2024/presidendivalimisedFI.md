@@ -7,6 +7,10 @@
 
 Ei tahaks sellest rääkida, tagasiside somes on olnud hävitav. Tundub, et ajakirjanduslik "auk" Yle poolt. 
 
+## Valevideod
+
+https://twitter.com/Faktabaari/status/1751149356277805246
+
 # 25.01.2024 Tundmatu Halla-aho 
 
 Tundmatu, kuid kindlasti mitte hall. 
