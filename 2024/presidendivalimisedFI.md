@@ -3,7 +3,11 @@
 
 ... Soome keeles siis "vaalipäivän aatto"
 
-# 25.01.2024 Tundmatu Halla-aho
+## Yle debatt neljapäeval
+
+Ei tahaks sellest rääkida, tagasiside somes on olnud hävitav. Tundub, et ajakirjanduslik "auk" Yle poolt. 
+
+# 25.01.2024 Tundmatu Halla-aho 
 
 Tundmatu, kuid kindlasti mitte hall. 
 
