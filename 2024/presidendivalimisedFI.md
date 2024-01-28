@@ -19,6 +19,8 @@ Võitjad: Halla-aho. Kaotajad: Essayah, Urpilainen.
 
 Haavisto, Andersson ja  Urpilainen said oma toetajatelt kokku 35 %. 
 
+https://twitter.com/Petri2020/status/1751694444531716522 
+
 ## Suuremad linnad 
 
 Populaarseim kandidaat Helsinkis ja Tamperes oli PH. 
