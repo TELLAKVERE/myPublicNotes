@@ -1,4 +1,8 @@
 
+# 28.01.2024 Vahefiniš
+
+Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
+
 # 27.01.2024 Valimispäeva eelõhtu
 
 ... Soome keeles siis "vaalipäivän aatto"
