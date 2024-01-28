@@ -9,6 +9,8 @@ JHA: meie saame raha ainult raha eelarvest, mitte ärimeestelt, seega ei pea nen
 
 Andersson: RKP toetas Stubbi, kes on  maailmale avatud liberaal. 
 
+Urpilainen: aitäh, seltsimehed. 
+
 ## Võitjad ja kaotajad 
 
 Võitjad: Halla-aho. Kaotajad: Essayah, Urpilainen. 
