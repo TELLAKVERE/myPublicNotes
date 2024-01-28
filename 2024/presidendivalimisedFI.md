@@ -25,15 +25,37 @@ MA: https://twitter.com/MikaAaltola/status/1751178278377828442
 
 FT: https://www.ft.com/content/ae26e6fe-59ea-4ee4-b531-a5e05b357261 
 
+## Välispoliitika sihtidest lühidalt
+
+Tärkeimmät tavoitteeni ulkopolitiikassa presidenttikaudellani olisivat...
+
+https://yle.fi/a/74-20069557
+
+AS: olla luotettava läntisille liittolaisillemme.
+
+Olla strateginen kilpailija idän suuntaan.
+
+Olla yhteistyökykyinen kumppani etelään.
+
+PH: Suomen Nato-jäsenyyden pohjan rakentaminen. Samalla meidän täytyy tiivistää puolustusyhteistyötä muiden Pohjoismaiden kanssa.
+
+Venäjän Eurooppaan kohdistaman aggression pysäyttäminen ja rauhan saaminen Ukrainaan sekä Ukrainan jälleenrakennus.
+
+Suomen vieminen YK:n turvallisuusneuvoston jäseneksi. Siten pystymme paremmin vaikuttamaan rauhaan koko maailmassa.
+
+JHA: Venäjän kanssa ei ole näkyvissä paluuta luottamukseen ja sopimuksiin perustuvaan suhteeseen, koska Venäjä ei kunnioita muuta kuin voimaa.
+
+Suomen tulee tehdä oma osansa, jotta sotilaallinen pelote ja pidäke olisi mahdollisimman voimakas.
+
+Kahdenvälisesti Suomen tulee lisätä dialogia globaalin etelän maiden kanssa ja moralistisen sormenheristämisen sijaan etsiä yhteisiä nimittäjiä ja tavoitteita molemminpuolisen kunnioituksen hengessä.
+
 ## Abikaasadest
 
 Suzanne Innes-Stubb, Antonio Flores, Hilla Halla-aho
 
 https://yle.fi/a/74-20065659
 
-## Ystäväkirja
-
-https://yle.fi/a/74-20069557
+## Sünnipäevadest
 
 # 25.01.2024 Tundmatu Halla-aho 
 
