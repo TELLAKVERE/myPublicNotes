@@ -32,8 +32,7 @@ https://twitter.com/tellakvere/status/1751696337467257132
 
 ## Valevideod
 
-https://twitter.com/Faktabaari/status/1751149
-356277805246
+https://twitter.com/Faktabaari/status/1751149356277805246
 
 ## AA Helsingis
 
