@@ -24,7 +24,7 @@ Napilt parem kui Aaltola. 47 552 vs 47 195. Ei ole hea tulemus, isegi väikeerak
 
 ## Urpilainen
 
-Ei saa aru, miks kandideeris. Ei toonud oma erakonale täiendavat populaarsust, pigem tõmbas seda maha. 
+Ei saa aru, miks kandideeris. Ei toonud oma erakonnale täiendavat populaarsust, pigem tõmbas seda maha. 
 
 ## Aaltola 
 
