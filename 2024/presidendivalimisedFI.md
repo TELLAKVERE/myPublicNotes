@@ -3,19 +3,37 @@
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
+## Noored haritlased
+
+Ülikoolilinnades valiti pigem PH. Mis tähendab, et noored haritlased on pigem liberaalid - vasakpoolsed? 
+
+## Esssayah
+
+Napilt parem kui 47 552 vs 47 195. Ei ole hea tulemus, isegi väikeerakonnale. 
+
+## Urpilainen
+
+Ei saa aru, miks kandideeris. Ei toonud oma erakonale täiendavat populaarsust, pogem tõmbas seda maha. 
+
+## Aaltola 
+
+Huvitav ja sisukas kandidaat. Aga näitab, et valimise don erakondadepõhised. Peaks lähemalt tutvustama tema seisukohti. 
+
+
 # 27.01.2024 Valimispäeva eelõhtu
 
 ... Soome keeles siis "vaalipäivän aatto"
 
 ## Yle debatt neljapäeval
 
-Ili ajakirjanduslikust vaatenurgast "huvitav". Miks valiti selline suund toimetajate poolt? Vajaks seletust.
+Oli ajakirjanduslikust vaatenurgast "huvitav". Miks valiti selline suund toimetajate poolt? Vajaks seletust.
 
-https://twitter.com/tellakvere/status/1751701306522144975
+https://twitter.com/tellakvere/status/1751696337467257132
 
 ## Valevideod
 
-https://twitter.com/Faktabaari/status/1751149356277805246
+https://twitter.com/Faktabaari/status/1751149
+356277805246
 
 ## AA Helsingis
 
