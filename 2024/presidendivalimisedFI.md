@@ -3,6 +3,10 @@
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
+## RKP
+
+Andersson: RKP toetas Stubbi, kes on  maailmale avatud liberaal. 
+
 ## Noored haritlased
 
 Ülikoolilinnades valiti pigem PH. Mis tähendab, et noored haritlased on pigem liberaalid - vasakpoolsed? 
