@@ -3,6 +3,10 @@
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
+## Suuremad linnad 
+
+Populaarseim kandidaat Helsinkis ja Tamperes oli PH. 
+
 ## RKP
 
 Andersson: RKP toetas Stubbi, kes on  maailmale avatud liberaal. 
