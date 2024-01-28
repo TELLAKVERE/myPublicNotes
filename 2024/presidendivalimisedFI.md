@@ -9,7 +9,9 @@ Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
 ## Yle debatt neljapäeval
 
-Ei tahaks sellest rääkida, tagasiside somes on olnud hävitav. Tundub, et ajakirjanduslik "auk" Yle poolt. 
+Ili ajakirjanduslikust vaatenurgast "huvitav". Miks valiti selline suund toimetajate poolt? Vajaks seletust.
+
+https://twitter.com/tellakvere/status/1751701306522144975
 
 ## Valevideod
 
