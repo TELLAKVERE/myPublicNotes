@@ -25,6 +25,16 @@ MA: https://twitter.com/MikaAaltola/status/1751178278377828442
 
 FT: https://www.ft.com/content/ae26e6fe-59ea-4ee4-b531-a5e05b357261 
 
+## Abikaasadest
+
+Suzanne Innes-Stubb, Antonio Flores, Hilla Halla-aho
+
+https://yle.fi/a/74-20065659
+
+## Ystäväkirja
+
+https://yle.fi/a/74-20069557
+
 # 25.01.2024 Tundmatu Halla-aho 
 
 Tundmatu, kuid kindlasti mitte hall. 
