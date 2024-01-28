@@ -41,7 +41,7 @@ Ei saa aru, miks kandideeris. Ei toonud oma erakonnale täiendavat populaarsust,
 
 ## Aaltola 
 
-Huvitav ja sisukas kandidaat. Aga näitab, et valimised on erakondadepõhised. Peaks lähemalt tutvustama tema seisukohti. 
+Huvitav ja sisukas kandidaat. Aga näitab, et valimised on erakondadepõhised. 
 
 
 # 27.01.2024 Valimispäeva eelõhtu
