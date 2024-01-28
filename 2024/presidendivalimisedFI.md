@@ -61,11 +61,11 @@ https://yle.fi/a/74-20065659
 
 ## Sünnipäevadest
 
-AS Sünnipäev ja -koht: 1. aprill 1968 (vanus 55 aastat), Helsingi, Soome
+AS 1. aprill 1968 (vanus 55 aastat), Helsingi, Soome
 
-PH Sünnipäev ja -koht: 23. märts 1958 (vanus 65 aastat), Helsingi, Soome
+PH 23. märts 1958 (vanus 65 aastat), Helsingi, Soome
 
-JHA Sünnipäev ja -koht: 27. aprill 1971 (vanus 52 aastat), Tampere, Soome
+JHA 27. aprill 1971 (vanus 52 aastat), Tampere, Soome
 
 
 # 25.01.2024 Tundmatu Halla-aho 
