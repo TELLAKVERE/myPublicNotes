@@ -74,6 +74,8 @@ MA: https://twitter.com/MikaAaltola/status/1751178278377828442
 
 FT: https://www.ft.com/content/ae26e6fe-59ea-4ee4-b531-a5e05b357261 
 
+Bloomberg: https://www.bloomberg.com/news/articles/2024-01-27/nato-member-finland-faces-tight-presidential-election
+
 ## Välispoliitika sihtidest lühidalt
 
 Tärkeimmät tavoitteeni ulkopolitiikassa presidenttikaudellani olisivat...
