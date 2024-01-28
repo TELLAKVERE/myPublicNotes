@@ -15,6 +15,10 @@ Urpilainen: aitäh, seltsimehed.
 
 Võitjad: Halla-aho. Kaotajad: Essayah, Urpilainen. 
 
+## Vasakpoolsed
+
+Haavisto, Andersson ja  Urpilainen said oma toetajatelt kokku 35 %. 
+
 ## Suuremad linnad 
 
 Populaarseim kandidaat Helsinkis ja Tamperes oli PH. 
