@@ -18,7 +18,8 @@ Andersson: RKP toetas Stubbi, kes on  maailmale avatud liberaal.
 ## Halla-aho
 
 Ei oska analüüsida detaile, aga tema toetus jäi PS erakonna siseseks, ei ületa erakonna piire. Hea tulemus. 
-## Esssayah
+
+## Essayah
 
 Napilt parem kui Aaltola. 47 552 vs 47 195. Ei ole hea tulemus, isegi väikeerakonnale. 
 
