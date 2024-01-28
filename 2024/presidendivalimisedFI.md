@@ -5,7 +5,7 @@ Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
 ## Tsitaate
 
-JHA: meie saame raha ainult raha eelarvest, mitte ärimeestelt, seega ei pea nende huve teenima, see on meie tugevus (mitte täpne tsitaat, vabas vormis)
+JHA: meie saame raha ainult riigieelarvest, mitte ärimeestelt, seega ei pea nende huve teenima, see on meie tugevus (mitte täpne tsitaat, vabas vormis)
 
 Andersson: RKP toetas Stubbi, kes on  maailmale avatud liberaal. 
 
