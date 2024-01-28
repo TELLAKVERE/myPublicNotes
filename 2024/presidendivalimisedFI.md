@@ -7,17 +7,20 @@ Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
 
 Ülikoolilinnades valiti pigem PH. Mis tähendab, et noored haritlased on pigem liberaalid - vasakpoolsed? 
 
+## Halla-aho
+
+Ei oska analüüsida detaile, aga tema toetus jäi PS erakonna siseseks, ei ületa erakonna piire. Hea tulemus. 
 ## Esssayah
 
-Napilt parem kui 47 552 vs 47 195. Ei ole hea tulemus, isegi väikeerakonnale. 
+Napilt parem kui Aaltola. 47 552 vs 47 195. Ei ole hea tulemus, isegi väikeerakonnale. 
 
 ## Urpilainen
 
-Ei saa aru, miks kandideeris. Ei toonud oma erakonale täiendavat populaarsust, pogem tõmbas seda maha. 
+Ei saa aru, miks kandideeris. Ei toonud oma erakonale täiendavat populaarsust, pigem tõmbas seda maha. 
 
 ## Aaltola 
 
-Huvitav ja sisukas kandidaat. Aga näitab, et valimise don erakondadepõhised. Peaks lähemalt tutvustama tema seisukohti. 
+Huvitav ja sisukas kandidaat. Aga näitab, et valimised on erakondadepõhised. Peaks lähemalt tutvustama tema seisukohti. 
 
 
 # 27.01.2024 Valimispäeva eelõhtu
