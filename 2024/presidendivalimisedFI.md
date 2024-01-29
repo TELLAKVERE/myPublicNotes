@@ -38,6 +38,10 @@ Kohal olid JHA, MA, AS, OR. Kas PH ei kutsutud? Ta ise ei saanud tulla? https://
 
 Susanna Pettersson: https://www.hs.fi/kulttuuri/art-2000010111468.html
 
+## Tiktok
+
+Minu küsimus oleks, mis sõnumseid edastati, mida promoti Tiktokis? Kas keegi on ülevaate teinud? Kokkamine ja muud "pehmed teemad"?
+
 # 28.01.2024 Vahefiniš
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
