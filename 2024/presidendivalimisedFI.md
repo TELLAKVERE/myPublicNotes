@@ -1,4 +1,14 @@
 
+
+# 29.01.2023 Ennustused 
+
+
+# 29.01.2024 Päev pärast pidu
+
+## Eesti kajastus
+
+AA / ERR: https://www.err.ee/1609235391/err-helsingis-paev-enne-presidendivalimisi-on-soosikuks-endiselt-stubb https://www.err.ee/1609235862/soome-presidendivalimiste-teise-vooru-lahevad-stubb-ja-haavisto
+
 # 28.01.2024 Vahefiniš
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
