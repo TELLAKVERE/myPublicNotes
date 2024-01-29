@@ -44,6 +44,10 @@ Susanna Pettersson: https://www.hs.fi/kulttuuri/art-2000010111468.html
 
 Või siiski, midagi üllatavat ei olnud, aga Eestist ja Tallinnast vaadates igakord ikkagi üllatav, et see põlvkondadevahetusega ei kao, ei hääbu. 
 
+## Abikaasadest
+
+AS ja SIS, CGEM: https://twitter.com/KivinenLassi/status/1751897387478491430
+
 ## Tiktok
 
 Minu küsimus oleks, mis sõnumseid edastati, mida promoti Tiktokis? Kas keegi on ülevaate teinud? Kokkamine ja muud "pehmed teemad"?
