@@ -38,6 +38,12 @@ Kohal olid JHA, MA, AS, OR. Kas PH ei kutsutud? Ta ise ei saanud tulla? https://
 
 Susanna Pettersson: https://www.hs.fi/kulttuuri/art-2000010111468.html
 
+## Porvarit vs toverit
+
+Üllatavalt palju, minu jaoks, käis kajastuses läbi vastandumist "valged" vs "punaed".
+
+Või siiski, midagi üllatavat ei olnud, aga Eestist ja Tallinnast vaadates igakord ikkagi üllatav, et see põlvkondadevahetusega ei kao, ei hääbu. 
+
 ## Tiktok
 
 Minu küsimus oleks, mis sõnumseid edastati, mida promoti Tiktokis? Kas keegi on ülevaate teinud? Kokkamine ja muud "pehmed teemad"?
