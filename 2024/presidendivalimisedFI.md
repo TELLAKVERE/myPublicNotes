@@ -4,7 +4,7 @@
 
 Ennem kui vaadata ettepoole, peaks korraks kiikama eilsesse päeva. Uuringutefirma ennustused pidasid paika. Seega on ka järgnevad ennustused vettpidavad. 
 
-Stubb 59% vs Haavisto 41%. https://yle.fi/a/74-20071122
+Stubb 59% vs Haavisto 41%. https://yle.fi/a/74-20071122 https://twitter.com/mikkolaakso/status/1751719961523851429
 
 ## Esimese valimisvooru esimene on ka teise valimisvooru esimene
 
