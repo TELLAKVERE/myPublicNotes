@@ -46,7 +46,7 @@ Või siiski, midagi üllatavat ei olnud, aga Eestist ja Tallinnast vaadates igak
 
 ## Abikaasadest
 
-AS ja SIS, CGEM: https://twitter.com/KivinenLassi/status/1751897387478491430
+AS ja SIS, CGEM: https://twitter.com/KivinenLassi/status/1751897387478491430 https://yle.fi/a/74-20071828
 
 ## Tiktok
 
