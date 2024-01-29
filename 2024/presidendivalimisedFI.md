@@ -4,9 +4,17 @@
 
 Ennem kui vaadata ettepoole, peaks korraks kiikama eilsesse päeva. Uuringutefirma ennustused pidasid paika. Seega on ka järgnevad ennustused vettpidavad. 
 
-## Esimese vooru esimene on ka teise valimisvooru esimene
+Stubb 59% vs Haavisto 41%. https://yle.fi/a/74-20071122
 
-https://twitter.com/villecantell/status/1751683188341010630
+## Esimese valimisvooru esimene on ka teise valimisvooru esimene
+
+VC: https://twitter.com/villecantell/status/1751683188341010630
+
+## Mis juhtub edasi
+
+MK:  https://twitter.com/KarnaMikko/status/1751679994533716157
+
+JS: AS vs PH vs OR https://twitter.com/SarasvuoJari/status/1751559918035829069 https://twitter.com/SarasvuoJari/status/1751555794946920877 https://twitter.com/SarasvuoJari/status/1751557076235493453
 
 # 29.01.2024 Päev pärast pidu
 
@@ -22,9 +30,13 @@ AA / ERR: https://www.err.ee/1609235391/err-helsingis-paev-enne-presidendivalimi
 
 Kohal olid JHA, MA, AS, OR. Kas PH ei kutsutud? Ta ise ei saanud tulla? https://twitter.com/KristiRaik/status/1751695923380457826
 
-## Kandidaadid Kaubandoskoja debatil
+## Kandidaadid Kaubanduskoja debatil
 
 08.12.2023: Kohal olid JHA, PH, AS, OR. https://twitter.com/Romakka/status/1751715362981195825
+
+## Soome väärtustest
+
+Susanna Pettersson: https://www.hs.fi/kulttuuri/art-2000010111468.html
 
 # 28.01.2024 Vahefiniš
 
