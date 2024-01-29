@@ -2,16 +2,35 @@
 
 # 29.01.2023 Ennustused 
 
+Ennem kui vaadata ettepoole, peaks korraks kiikama eilsesse päeva. Uuringutefirma ennustused pidasid paika. Seega on ka järgnevad ennustused vettpidavad. 
+
+## Esimese vooru esimene on ka teise valimisvooru esimene
+
+https://twitter.com/villecantell/status/1751683188341010630
 
 # 29.01.2024 Päev pärast pidu
+
+## Välismeedia
+
+BBC: https://twitter.com/charlyjsp/status/1751683901146239270
 
 ## Eesti kajastus
 
 AA / ERR: https://www.err.ee/1609235391/err-helsingis-paev-enne-presidendivalimisi-on-soosikuks-endiselt-stubb https://www.err.ee/1609235862/soome-presidendivalimiste-teise-vooru-lahevad-stubb-ja-haavisto
 
+## Kandidaadid Eesti saatkonna debatil
+
+Kohal olid JHA, MA, AS, OR. Kas PH ei kutsutud? Ta ise ei saanud tulla? https://twitter.com/KristiRaik/status/1751695923380457826
+
+## Kandidaadid Kaubandoskoja debatil
+
+08.12.2023: Kohal olid JHA, PH, AS, OR. https://twitter.com/Romakka/status/1751715362981195825
+
 # 28.01.2024 Vahefiniš
 
 Tulemused: https://vaalit.yle.fi/pv2024-k1/tulospalvelu/fi/
+
+Valimismehhanismist: https://twitter.com/ylenews/status/1751578481714921729
 
 ## Tsitaate
 
@@ -34,6 +53,8 @@ https://twitter.com/Petri2020/status/1751694444531716522
 ## Suuremad linnad 
 
 Populaarseim kandidaat Helsinkis ja Tamperes oli PH. 
+
+TA: https://twitter.com/timoaro/status/1751700487873626215
 
 ## Noored haritlased
 
