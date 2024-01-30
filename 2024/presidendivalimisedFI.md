@@ -16,7 +16,7 @@ MK:  https://twitter.com/KarnaMikko/status/1751679994533716157
 
 JS: AS vs PH vs OR https://twitter.com/SarasvuoJari/status/1751559918035829069 https://twitter.com/SarasvuoJari/status/1751555794946920877 https://twitter.com/SarasvuoJari/status/1751557076235493453
 
-# 29.01.2024 Päev pärast pidu
+# 29.01.2024 Nädal pärast pidu
 
 ## Välismeedia
 
@@ -49,6 +49,10 @@ Susanna Pettersson: https://www.hs.fi/kulttuuri/art-2000010111468.html
 Üllatavalt palju, minu jaoks, käis kajastuses läbi vastandumist "valged" vs "punaed".
 
 Või siiski, midagi üllatavat ei olnud, aga Eestist ja Tallinnast vaadates igakord ikkagi üllatav, et see põlvkondadevahetusega ei kao, ei hääbu. 
+
+## Mina hääletan 
+
+Twitter on täis hüüatusi "Olen AS poolt", "Olen PH poolt, "Nüüd hääletan AS poolt", "PH on usaldusväärne kandidaat. " Mikrotasandil < 10 või < 100 mõjutatavat.  
 
 ## Abikaasadest
 
