@@ -24,7 +24,9 @@ BBC: https://twitter.com/charlyjsp/status/1751683901146239270
 
 ## Eesti kajastus
 
-AA / ERR: https://www.err.ee/1609235391/err-helsingis-paev-enne-presidendivalimisi-on-soosikuks-endiselt-stubb https://www.err.ee/1609235862/soome-presidendivalimiste-teise-vooru-lahevad-stubb-ja-haavisto
+AA ja ERR: https://www.err.ee/1609235391/err-helsingis-paev-enne-presidendivalimisi-on-soosikuks-endiselt-stubb https://www.err.ee/1609235862/soome-presidendivalimiste-teise-vooru-lahevad-stubb-ja-haavisto
+
+EB ja Kuku: https://kuku.pleier.ee/podcast/sihik/175931
 
 ## Kandidaadid Eesti saatkonna debatil
 
