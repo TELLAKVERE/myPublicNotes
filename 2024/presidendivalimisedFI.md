@@ -30,6 +30,8 @@ AA, SS ja Välisilm: https://jupiter.err.ee/1609226255/valisilm
 
 EB ja Kuku: https://kuku.pleier.ee/podcast/sihik/175931
 
+KK ja Postimees: https://maailm.postimees.ee/7948984/analuus-mis-mojutab-soome-presidendivalimiste-lopptulemust
+
 ## Kandidaadid Eesti saatkonna debatil
 
 Kohal olid JHA, MA, AS, OR. Kas PH ei kutsutud? Ta ise ei saanud tulla? https://twitter.com/KristiRaik/status/1751695923380457826
