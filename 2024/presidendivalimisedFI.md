@@ -7,8 +7,6 @@ Aga valimistel kajastavad ehk siis peegeldavada sõnumid ja arutelu kogu maailma
 
 Siin on hea viidata AS lühildastele seisukohtadele, vastused küsimustele, mis avaldati nö "pehme loona", mis pidi poliitikuid tavalisele valijale lähemal tooma. 
 
-https://www.youtube.com/watch?v=1eZDhhLC8_A
-
 PS. Ma ei osanud paremat pealkirja hetkel lisada kui "Suured narratiivid", võiks mida asjalikumat leida. 
 
 PSS. Ahah, leidsingi. Globaalpoliitika ehk hetkemured ja -rõõmud globaalsel  skaalal. https://www.youtube.com/watch?v=4QCzjIeBLCI
