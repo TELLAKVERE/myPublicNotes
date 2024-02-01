@@ -1,11 +1,13 @@
 
-# 30.01.2024 Põhi, lõuna, ida, lääs
+# 01.02.2024 Põhi, lõuna, ida, lääs
 
 Soome on üks väike  maa Euroopa piiri ääres, kolgas, väike ja vaene. Noo, Eestist  rikkam ja õnnelikum. Aga ikkagi. Külm ja pime. 
 
-Aga valimistel kajastavad ehk siis peegeldavada sõnumid ja arutelu kogu maailma, koko maailman menoa. 
+Aga valimistel kajastavad ehk siis peegeldavad sõnumid ja arutelu kogu maailma, koko maailman menoa. 
 
 Siin on hea viidata AS lühildastele seisukohtadele, vastused küsimustele, mis avaldati nö "pehme loona", mis pidi poliitikuid tavalisele valijale lähemal tooma. 
+
+https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/presidendivalimisedFI.md#v%C3%A4lispoliitika-sihtidest-l%C3%BChidalt
 
 PS. Ma ei osanud paremat pealkirja hetkel lisada kui "Suured narratiivid", võiks mida asjalikumat leida. 
 
