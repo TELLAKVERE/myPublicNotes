@@ -5,7 +5,7 @@ Soome on üks väike  maa Euroopa piiri ääres, kolgas, väike ja vaene. Noo, E
 
 Aga valimistel kajastavad ehk siis peegeldavad sõnumid ja arutelu kogu maailma, koko maailman menoa. 
 
-Siin on hea viidata AS lühildastele seisukohtadele, vastused küsimustele, mis avaldati nö "pehme loona", mis pidi poliitikuid tavalisele valijale lähemal tooma. 
+Siin on hea viidata AS lühildastele seisukohtadele, vastused küsimustele, mis avaldati nö "pehme loona", eesmärgiks  poliitikuid tavalisele valijale lähemale tuua.  
 
 https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/presidendivalimisedFI.md#v%C3%A4lispoliitika-sihtidest-l%C3%BChidalt
 
