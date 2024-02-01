@@ -13,6 +13,8 @@ PS. Ma ei osanud paremat pealkirja hetkel lisada kui "Suured narratiivid", võik
 
 PSS. Ahah, leidsingi. Globaalpoliitika ehk hetkemured ja -rõõmud globaalsel  skaalal. https://www.youtube.com/watch?v=4QCzjIeBLCI
 
+https://www.youtube.com/watch?v=YmhFglRzXmU
+
 # 29.01.2023 Ennustused 
 
 Ennem kui vaadata ettepoole, peaks korraks kiikama eilsesse päeva. Uuringutefirma ennustused pidasid paika. Seega on ka järgnevad ennustused vettpidavad. 
