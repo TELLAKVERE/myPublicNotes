@@ -1,4 +1,11 @@
 
+# 02.02.2024 Visuaalsest identiteedist
+
+Seda on vähem analüüsitud. Kuidas kandidaadid soovivad ennast piltidel kujutada / kujutatud saada. Kellega, mis olukorras. Mis stiilis. Millal, kus ja kellele seda jagatakse. 
+
+Virtanen ja Haavisto https://twitter.com/rauli_virtanen/status/1753365707754987906
+
+
 # 01.02.2024 Põhi, lõuna, ida, lääs
 
 Soome on üks väike  maa Euroopa piiri ääres, kolgas, väike ja vaene. Noo, Eestist  rikkam ja õnnelikum. Aga ikkagi. Külm ja pime. 
