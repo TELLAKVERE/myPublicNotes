@@ -1,4 +1,9 @@
 
+
+# 04.02.2024 AS müts
+
+... on äge. 
+
 # 04.02.2024 Korkman vs Holmström
 
 Sixten Korkman om PH tugimeeskonnas, Bengt Holmström AS leeris. 
