@@ -10,7 +10,9 @@ https://twitter.com/alexstubb/status/1726573834378023020
 
 Seda on vähem analüüsitud. Kuidas kandidaadid soovivad ennast piltidel kujutada / kujutatud saada. Kellega, mis olukorras. Mis stiilis. Millal, kus ja kellele seda jagatakse. 
 
-Virtanen ja Haavisto https://twitter.com/rauli_virtanen/status/1753365707754987906
+Virtanen ja PH  https://twitter.com/rauli_virtanen/status/1753365707754987906
+
+THI ja AS https://twitter.com/IlvesToomas/status/1753694047233802599 https://twitter.com/alexstubb/status/1753824612847120584 
 
 
 # 01.02.2024 Põhi, lõuna, ida, lääs
