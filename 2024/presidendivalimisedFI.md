@@ -1,4 +1,11 @@
 
+# 04.02.2024 Korkman vs Holmström
+
+Sixten Korkman om PH tugimeeskonnas, Bengt Holmström AS leeris. 
+
+https://twitter.com/alexstubb/status/1726573834378023020
+
+
 # 02.02.2024 Visuaalsest identiteedist
 
 Seda on vähem analüüsitud. Kuidas kandidaadid soovivad ennast piltidel kujutada / kujutatud saada. Kellega, mis olukorras. Mis stiilis. Millal, kus ja kellele seda jagatakse. 
