@@ -1,8 +1,15 @@
 
+# 04.02.2024 Armotonta menoa - Sepi Kumpulainen
+
+Inimesed on turul, metroos ja somes, higipisar palgel. Ilus päikseline päev. Viimane nädalavahetus. 
+
+https://www.youtube.com/watch?v=YmhFglRzXmU
 
 # 04.02.2024 AS müts
 
-... on äge. 
+... on äge. Kus on PH  leninlik must nokkmüts või punane barett? 
+
+https://www.google.com/search?q=lenin+m%C3%BCts+site%3A.ee
 
 # 04.02.2024 Korkman vs Holmström
 
@@ -32,9 +39,9 @@ https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/presidendivalimisedFI
 
 PS. Ma ei osanud paremat pealkirja hetkel lisada kui "Suured narratiivid", võiks mida asjalikumat leida. 
 
-PSS. Ahah, leidsingi. Globaalpoliitika ehk hetkemured ja -rõõmud globaalsel  skaalal. https://www.youtube.com/watch?v=4QCzjIeBLCI
+PSS. Ahah, leidsingi. Globaalpoliitika ehk hetkemured ja -rõõmud globaalsel  skaalal. 
 
-https://www.youtube.com/watch?v=YmhFglRzXmU
+Põhi, lõuna, ida, lääs. https://www.youtube.com/watch?v=4QCzjIeBLCI
 
 # 29.01.2023 Ennustused 
 
