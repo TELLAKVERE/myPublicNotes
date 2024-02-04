@@ -1,7 +1,9 @@
 
-# 04.02.2024 Armotonta menoa - Sepi Kumpulainen
+# 04.02.2024 PH toetuseks
 
 Inimesed on turul, metroos ja somes, higipisar palgel. Ilus päikseline päev. Viimane nädalavahetus. 
+
+Armotonta menoa - Sepi Kumpulainen
 
 https://www.youtube.com/watch?v=YmhFglRzXmU
 
