@@ -5,6 +5,12 @@
 
 11.veebruaril viimane hääletuspäev, otsustavad valimised. 
 
+## Tulevasele presidendile
+
+Mä oon mahtava mies  - Sepi Kumpulainen 
+
+https://www.youtube.com/watch?v=zSrLSwl5-M4
+
 # 04.02.2024 PH toetuseks
 
 Inimesed on turul, metroos ja somes, higipisar palgel. Ilus päikseline päev. Viimane nädalavahetus. 
