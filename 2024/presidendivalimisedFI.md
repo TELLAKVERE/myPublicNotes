@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=zSrLSwl5-M4
 
 ## Välismeedia
 
-Stubb, Amanput, CNN https://twitter.com/amanpour/status/1754613499970404355
+Stubb, Amanpour, CNN https://twitter.com/amanpour/status/1754613499970404355
 
 # 04.02.2024 PH toetuseks
 
