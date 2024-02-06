@@ -19,7 +19,7 @@ Stubb, Amanpour, CNN https://twitter.com/amanpour/status/1754613499970404355
 
 Kuidas teha kokuvõtet kampaaniast või sellest räägitust?
 
-* debatid
+* teledebatid
 * some
 * ajaleheartiklid
 
