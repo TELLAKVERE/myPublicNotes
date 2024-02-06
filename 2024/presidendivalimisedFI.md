@@ -15,6 +15,24 @@ https://www.youtube.com/watch?v=zSrLSwl5-M4
 
 Stubb, Amanpour, CNN https://twitter.com/amanpour/status/1754613499970404355
 
+## Kokkuvõte
+
+Kuidas teha kokuvõtet kampaaniast või sellest räägitust?
+
+* debatid
+* some
+* ajaleheartiklid
+
+Võiks öelda, et Soome ühiskond on suures plaanis samaks jäänud (hoolimata murrangutest, NATO liikmesusest). 
+
+Vasak ja parem vastasseis. Vene ja läänemeelsed. Paljude nähtuste juuri tuleb otsida ajaloost. Lustraatio. 
+
+Samas ei ole veel ajaloo prügikastides tuhnimist lõpetatiud, pigem alles alustatud. 
+
+https://fi.wikipedia.org/wiki/Lustraatio 
+
+... ehk siis praegust kampaaniat ja vastasseisu iseloomustavad paljuski ajaloolised ja ajaloost tulenevad mõjud. 
+
 # 04.02.2024 PH toetuseks
 
 Inimesed on turul, metroos ja somes, higipisar palgel. Ilus päikseline päev. Viimane nädalavahetus. 
