@@ -29,7 +29,7 @@ Vasak ja parem vastasseis. Vene ja läänemeelsed. Paljude nähtuste juuri tuleb
 
 Samas ei ole veel ajaloo prügikastides tuhnimist lõpetatiud, pigem alles alustatud. 
 
-https://fi.wikipedia.org/wiki/Lustraatio 
+Lugemiseks: https://fi.wikipedia.org/wiki/Lustraatio https://twitter.com/Virkki5 https://twitter.com/RusiAlpo
 
 ... ehk siis praegust kampaaniat ja vastasseisu iseloomustavad paljuski ajaloolised ja ajaloost tulenevad mõjud. 
 
