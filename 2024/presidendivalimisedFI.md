@@ -1,4 +1,10 @@
 
+# 05.02.2023 Viimane nädal
+
+## Oeh, varsti saab see trall otsa
+
+11.veebruaril viimane hääletuspäev, otsustavad valimised. 
+
 # 04.02.2024 PH toetuseks
 
 Inimesed on turul, metroos ja somes, higipisar palgel. Ilus päikseline päev. Viimane nädalavahetus. 
