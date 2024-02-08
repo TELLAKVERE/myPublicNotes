@@ -3,7 +3,7 @@
 
 Ohtlik trend, 2 hääletusvooru soodustab seda, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. 
 
-Presidendi otsevalimised soodustavad mõtetut (pinnapealset) vastandumist. 
+Presidendi otsevalimised soodustavad mõtetut (pinnapealset) vastandumist. "Musiikkimaku kertoo ihmisestä yllättävän paljon." Tai sitten ei. https://yle.fi/a/74-20073702
 
 # 08.02.2024 Kes keda
 
