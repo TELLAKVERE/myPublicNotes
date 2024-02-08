@@ -7,7 +7,7 @@ YLE: https://yle.fi/a/74-20073422
 
 ERR: https://www.err.ee/1609246542/yle-kusitlus-soome-presidendivalimistel-juhib-jatkuvalt-stubb
 
-Rahvas on juba otsuse teinud. Stubb on (järgmine) president. 
+Rahvas on juba otsuse teinud. Stubb on (järgmine) president. Palju õnne! 
 
 # 05.02.2023 Viimane nädal
 
