@@ -1,3 +1,10 @@
+# 08.02.2024 Kes keda
+
+Väike võimalus on, et PH ikkagi võidab. Väike tõenäosus aga ...
+
+Billy Joel - We Didn't Start the Fire
+
+https://www.youtube.com/watch?v=eFTLKWw542g&list=RDEM3SrjErkmDUsQuaMpWM6N-A&index=16
 
 # 08.02.2024 Stubb ja Haavisto, Stubb ees
 
