@@ -1,3 +1,10 @@
+
+# 08.02.2024 Poliitikud kui (rock)staarid
+
+Ohtlik trend, 2 hääletusvooru soodustab seda, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. 
+
+Presidendi otsevalimised soodustavad mõtetut (pinnapealset) vastandumist. 
+
 # 08.02.2024 Kes keda
 
 Väike võimalus on, et PH ikkagi võidab. Väike tõenäosus aga ...
