@@ -1,7 +1,15 @@
 
+# 09.02.2024 LI ja TR
 
+Riisalo lõpetab töölepingu Luukas Ilvesega. Põhuseeks: projektid ei edene
 
-# 31.01.2024 AI ja TR
+Hästi: ministril ja kantsleril tööandjana on õigus teha personalivalikuid. Kui projektid ei edene siis ... võimalik "teha valikuid". 
+
+Halvasti: LI oli subjektiivselt* üks asjalikumaid eriigi vedajaid, kellel oli nii sisu kui ka visiooni. 
+
+*subjektiivsed kvalitatiivsed hinnangud saab praeguse kontentanalüüsi juures muuta kvantitatiivsetekes mõõdikuteks, minul ei ole selleks lihtsalt eraisikuna tahtmist, aega ega ressurssi. 
+
+# 31.01.2024 AI ja TR 
 
 Riisalo tahab kasutada laenuraha selleks, et panustada ressurssi AI ehitamiseks. 
 
