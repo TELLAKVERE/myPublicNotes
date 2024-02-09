@@ -1,7 +1,7 @@
 
 # 09.02.2024 LI ja TR
 
-Riisalo lõpetab töölepingu Luukas Ilvesega. Põhuseeks: projektid ei edene
+Riisalo lõpetab töölepingu Luukas Ilvesega. Põhjuseks: projektid ei edene
 
 Hästi: ministril ja kantsleril tööandjana on õigus teha personalivalikuid. Kui projektid ei edene siis ... võimalik "teha valikuid". 
 
