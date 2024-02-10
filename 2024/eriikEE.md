@@ -1,4 +1,10 @@
 
+# 10.02.2024 Vigade parandus
+
+1. LKI, mitte LI
+
+2. EE vs EER
+   
 # 09.02.2024 LI ja TR
 
 Riisalo lõpetab töölepingu Luukas Ilvesega. Põhjuseks: projektid ei edene
