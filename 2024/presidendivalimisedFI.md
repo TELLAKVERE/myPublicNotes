@@ -1,4 +1,8 @@
 
+# 11.02.2024 Finiš
+
+Homme siis. 
+
 # 08.02.2024 Poliitikud kui (rock)staarid
 
 Ohtlik trend, 2 hääletusvooru soodustab vastandumist, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. 
