@@ -3,6 +3,10 @@
 
 Täna siis. 
 
+Tulemused: https://vaalit.yle.fi/pv2024-k2/tulospalvelu/fi/
+
+Valimismehhanismist: https://twitter.com/ylenews/status/1751578481714921729
+
 ## Minu vaade
 
 Debatid: vaatasin liiga vähe
