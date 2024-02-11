@@ -5,7 +5,7 @@ Täna siis.
 
 Tulemused: https://vaalit.yle.fi/pv2024-k2/tulospalvelu/fi/
 
-Valimismehhanismist: https://twitter.com/ylenews/status/1751578481714921729
+Valimismehhanismist: https://yle.fi/a/74-20068250
 
 ## Minu vaade
 
@@ -17,7 +17,7 @@ Hea: IL kajastus
 
 Halb: Ajakirjanduses liiga meelelahutuslik vaade valimistele. Illalatrullala. Eesti ajakirjanduses jälle liiga pealiskaudne kajastus. 
 
-Teemad: ajalugu, Venemaa
+Teemad: lähiajalugu, Venemaa
 
 ## Muusikat
 
