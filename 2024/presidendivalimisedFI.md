@@ -15,6 +15,14 @@ Halb: Ajakirjanduses liiga meelelahutuslik vaade valimistele. Illalatrullala. Ee
 
 Teemad: ajalugu, Venemaa
 
+## Muusikat
+
+Raadio Maria - Mu Armastus  https://youtu.be/nAkqBfQA2CQ?si=wpqpjgOsTsdql5je via @YouTube 
+
+## Presidendist
+
+Kas president on välispliitika käilakuju, meediastaar, rahva isa, naabrimees? Meedia kajastuse järgi peaks ta täitma kõiki neid ootusi. 
+
 # 08.02.2024 Poliitikud kui (rock)staarid
 
 Ohtlik trend, 2 hääletusvooru soodustab vastandumist, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. Rahvateenrid, riigimehed. 
