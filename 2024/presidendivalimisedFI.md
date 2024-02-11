@@ -1,11 +1,23 @@
 
 # 11.02.2024 Finiš
 
-Homme siis. 
+Täna siis. 
+
+## Minu vaade
+
+Debatid: vaatasin liiga vähe
+
+Twitter: lugesin liiga palju
+
+Hea: IL kajastus
+
+Halb: Ajakirjanduses liiga meelelahutuslik vaade valimistele. Illalatrullala. Eesti ajakirjanduses jälle liiga pealiskaudne kajastus. 
+
+Teemad: ajalugu, Venemaa
 
 # 08.02.2024 Poliitikud kui (rock)staarid
 
-Ohtlik trend, 2 hääletusvooru soodustab vastandumist, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. 
+Ohtlik trend, 2 hääletusvooru soodustab vastandumist, A vs B, aga see ei peaks olema nii.  Staarid vs. avalku teenistuse ametnikud. Rahvateenrid, riigimehed. 
 
 Presidendi otsevalimised soodustavad mõtetut (pinnapealset) vastandumist. "Musiikkimaku kertoo ihmisestä yllättävän paljon." Tai sitten ei. https://yle.fi/a/74-20073702
 
