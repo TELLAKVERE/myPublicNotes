@@ -1,4 +1,16 @@
 
+# 13.02.2024 DR Akadeemia
+
+Eriik on teinud ka huvitavaid asju, õppematerjale, mis ei leia vist  laialdast kasutamist.
+
+See on täitsa huvitav. 
+
+https://digiriigiakadeemia.ee/
+
+PS. Minul seostub iga Akadeemia nimetus Pan Kleksi Akadeemiaga. Veidi pompöösne aga no las ta siis olla. 
+
+https://rahvaraamat.ee/p/pan-kleksi-akadeemia/1334786/et?isbn=9789949856848
+
 # 10.02.2024 Vigade parandus
 
 1. LKI, mitte LI
