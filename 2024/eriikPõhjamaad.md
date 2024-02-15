@@ -1,4 +1,8 @@
 
+# 15.02.2024 Põhjamaad
+
+Vaatasin, et e-riigist ainult Eesti kontekstis rääkida on igav, võtame laeimalt Põhjamaad. 
+
 # 13.02.2024 DR Akadeemia
 
 Eriik on teinud ka huvitavaid asju, õppematerjale, mis ei leia vist  laialdast kasutamist.
@@ -40,3 +44,10 @@ https://www.err.ee/1609238667/riisalo-votaks-personaalriigi-arendamiseks-paarsad
 Eelnev arvamusartikkel (05.12.2023) riigi arenguplaanidest oli mõistlikum, tasakaalustatum ja tüsedam. 
 
 https://www.err.ee/1609185259/tiit-riisalo-pikk-plaan-eesti-majandusele-on-valmimas-kuid-pole-veel-kups
+
+
+# Kes, millest, miks
+
+Kes: toivo.ellakvere@gmail.com. Millest: e-lahendused riigile ja riiklikele organisatsioonidele. Laiemalt: EL. Kitsamalt: põhjamaad. Veelgi kitsamalt: Eesti
+
+
