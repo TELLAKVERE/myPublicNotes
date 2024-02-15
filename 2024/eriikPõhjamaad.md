@@ -1,7 +1,9 @@
 
 # 15.02.2024 Põhjamaad
 
-Vaatasin, et e-riigist ainult Eesti kontekstis rääkida on igav, võtame laeimalt Põhjamaad. 
+Vaatasin, et e-riigist ainult Eesti kontekstis rääkida on igav, võtame laiemalt Põhjamaad. 
+
+https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/eriikP%C3%B5hjamaad.md#kes-millest-miks
 
 # 13.02.2024 DR Akadeemia
 
