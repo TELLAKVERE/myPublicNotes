@@ -1,4 +1,12 @@
 
+# 12.02.2024 Nädal peale valimisi 
+
+Üllatavalt rahulik ja malbe, valimisuudised kadusid kohe järgmisel päeval portaalide esilehelt. Suuremat analüüsi ei järgnenud. 
+
+## Tiktok
+
+Tilannetta voisi verrata siihen, että terveyssuositusten laatiminen annettaisiin makeisyritysten tehtäväksi. https://faktabaari.fi/nakokulmat/digivaltaa-ei-vaaleissa-juuri-kasitelty-tiktok-teki-pr-tempun-havaintoja-presidentinvaalista/
+
 # 11.02.2024 Palju õnne, Stubb!
 
 # 11.02.2024 Finiš
