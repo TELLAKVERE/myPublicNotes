@@ -1,7 +1,11 @@
 
-# 19.04.2024 Musklid on meil vägevad
+# 19.04.2024 Nurjatutest
 
-Natukene ära tüütab IT - firmade ja - entusiastide pr ja promo. "Startupid teenivad x milj eur maksutulu ...", "E-residendid tõid  riigikassasse rekordilised y miljonit eurot ... ". 
+Vahelduseks: teistel teemadel, Vikerkaar 1-2/2024. "Kõigi maade nurjujad, tehke paremini". Pealkiri tekitas ootusi et miskit huvitavat. 
+
+10 minutiks oligi vaheldust, aga veidi liiga ilukirjanduslik ja humanitaarne perspektiiv. 
+
+Allik, Pulk, Notton, Ala, Tammiksaar, Murula, Kanger. 
 
 # 15.02.2024 Põhjamaad
 
