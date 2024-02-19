@@ -1,4 +1,16 @@
 
+# 19.04.2024 Siiretest ja tööstusühiskonnast
+
+Ajakirjas Vikerkaar Laur Kanger: "Tööstusühiskonna taasleiutamise vajadusest."
+
+Kokkuvõte: humanitaarse pilguga kirjutatud kokkuvõte sellest, kuidas me kirjeldame innovatsiooni, kliimamuutusi ja tööstusühiskonda, millised on trendid. 
+
+Tsitaat: "vastuseks "täpselt nii suur, et teadus, tehnoloogia ja turud vanaviisi jätkates seda ikkagi lahendada suudaksid.""
+
+Mis oli küsimus, või probleem, saate ise lugeda. Hetkel viidata ei saa e-artiklile. 
+
+P.S. Suurte Siirete Laboratoorium kõlab ... Veidi pompöösne aga no las ta siis olla. 
+
 # 19.04.2024 Nurjatutest
 
 Vahelduseks: teistel teemadel, Vikerkaar 1-2/2024. "Kõigi maade nurjujad, tehke paremini". Pealkiri tekitas ootusi et miskit huvitavat. 
