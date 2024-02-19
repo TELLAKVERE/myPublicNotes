@@ -3,7 +3,7 @@
 
 Ajakirjas Vikerkaar Laur Kanger: "Tööstusühiskonna taasleiutamise vajadusest."
 
-Kokkuvõte: humanitaarse pilguga kirjutatud kokkuvõte sellest, kuidas me kirjeldame innovatsiooni, kliimamuutusi ja tööstusühiskonda, millised on trendid. 
+Kokkuvõte: humanitaarse pilguga kirjutatud ülevaade  sellest, kuidas me kirjeldame innovatsiooni, kliimamuutusi ja tööstusühiskonda, millised on trendid. 
 
 Tsitaat: "vastuseks "täpselt nii suur, et teadus, tehnoloogia ja turud vanaviisi jätkates seda ikkagi lahendada suudaksid.""
 
