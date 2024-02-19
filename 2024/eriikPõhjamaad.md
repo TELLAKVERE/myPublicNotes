@@ -7,7 +7,7 @@ Kokkuvõte: humanitaarse pilguga kirjutatud ülevaade  sellest, kuidas me kirjel
 
 Tsitaat: "vastuseks "täpselt nii suur, et teadus, tehnoloogia ja turud vanaviisi jätkates seda ikkagi lahendada suudaksid.""
 
-Mis oli küsimus, või probleem, saate ise lugeda. Hetkel viidata ei saa e-artiklile. 
+Mis oli küsimus, millelle vastati, mis teema üle arutati, saate ise lugeda. Hetkel ei saa viidata  e-artiklile. 
 
 P.S. Suurte Siirete Laboratoorium kõlab ... Veidi pompöösne aga no las ta siis olla. 
 
