@@ -1,7 +1,7 @@
 
 # 19.04.2024 Musklid on meil vägevad
 
-Natukene ära tüütab IT - firmade ja -entusiastide pr ja promo. "Startupid teenivad x milj eur maksutulud ...", "E-residendid tõid  riigikassasse rekordilised y miljonit eurot ... ". 
+Natukene ära tüütab IT - firmade ja - entusiastide pr ja promo. "Startupid teenivad x milj eur maksutulud ...", "E-residendid tõid  riigikassasse rekordilised y miljonit eurot ... ". 
 
 # 15.02.2024 Põhjamaad
 
