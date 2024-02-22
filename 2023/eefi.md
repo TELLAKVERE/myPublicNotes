@@ -3,7 +3,7 @@
 
 ## Janne Saarikivi
 
-Janne Saarikivi: püsiühendus Soome ja Eesti vahele – tehnoloogiline või ikka vaimne üritus?
+Janne Saarikivi: püsiühendus Soome ja Eesti vahele – tehnoloogiline või ikka vaimne üritus? [ainult tellijale] 
 
 https://edasi.org/202280/janne-saarikivi-pusiuhendus-soome-ja-eesti-vahele-tehnoloogiline-voi-ikka-vaimne-uritus/
 
