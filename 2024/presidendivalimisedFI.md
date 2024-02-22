@@ -1,4 +1,8 @@
 
+# 21.02.2024 Niinistö ja Stubb
+
+https://twitter.com/niinisto/status/1760270869153161527
+
 # 12.02.2024 Nädal peale valimisi 
 
 Üllatavalt rahulik ja malbe, valimisuudised kadusid kohe järgmisel päeval portaalide esilehelt. Suuremat analüüsi ei järgnenud. 
