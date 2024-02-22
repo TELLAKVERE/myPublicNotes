@@ -13,6 +13,11 @@ https://edasi.org/202280/janne-saarikivi-pusiuhendus-soome-ja-eesti-vahele-tehno
 
 https://www.err.ee/1609149142/harri-tiido-soome-majandusteadlane-humanismist
 
+## Olli Rehn, Onnelisten tasavalta
+ 
+https://jupiter.err.ee/1608706570/harri-tiido-taustajutud-kilde-soomekeelselt-riiulilt-soome-panga-president-olli-rehn
+
+https://www.err.ee/1608706627/harri-tiido-olli-rehni-vahearuanne-soome-olukorrast
 
 # Kes, millest
 
