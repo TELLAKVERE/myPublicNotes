@@ -17,6 +17,8 @@ Mõlemal omad staarid, nt eriigi ex-arhitekt AK. Asutajd LP ja SB.
 
 Minu personaalne ajalugu: kasutam Gmaili alates 25.08.2005. Vähemalt leidisn sellise emaili. 
 
+Seega varsti 20 aastat. 
+
 # Kes, mis
 
 Kes: toivo.ellakvere@gmail.com Millest: GOOG, tooted ja tulevikuperspektiiv. 
