@@ -13,6 +13,11 @@ Ikka saab: nad arendavad it teenuseid ja oma organisatsiooni mingite printsiipid
 
 Mõlemal omad staarid, nt eriigi ex-arhitekt AK. Asutajd LP ja SB. 
 
+Viiteks: 
+
+Primum non nocere https://en.wikipedia.org/wiki/Primum_non_nocere
+Do no evil https://en.wikipedia.org/w/index.php?title=Do_no_evil&redirect=no 
+
 # 25.02.2024 Gmail
 
 Minu personaalne ajalugu: kasutan Gmaili alates 25.08.2005. Vähemalt leidisn sellise emaili. 
