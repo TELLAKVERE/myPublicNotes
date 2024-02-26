@@ -15,7 +15,7 @@ Mõlemal omad staarid, nt eriigi ex-arhitekt AK. Asutajd LP ja SB.
 
 # 25.02.2024 Gmail
 
-Minu personaalne ajalugu: kasutam Gmaili alates 25.08.2005. Vähemalt leidisn sellise emaili. 
+Minu personaalne ajalugu: kasutan Gmaili alates 25.08.2005. Vähemalt leidisn sellise emaili. 
 
 Seega varsti 20 aastat. 
 
