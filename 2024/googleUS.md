@@ -1,4 +1,18 @@
 
+# 27.02.2024 Google 2.0.24
+
+Eelmine logikanne oli laialt filosoofilistel teemadel (26.02.2024 eriigist ja Googlest). 
+
+Praktilismeta ja konkreetsemate küsimusetena püüaks vastust leida: 
+
+* GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja 
+
+* gamil - kas jätkata gmaili konto kasutamist? Kuigi Google emaili kontol on palju plusse, siis on sellel ka omda miinused (). AI avab laiemlat võimalused uute ekirja teenusel põhinevate toodete loomiseks, olgu selleks siis tavalise eposti konto paremaks tegemine või mõni uus lahendus 
+
+Viiteks: 
+
+App Economy Insights - how they make money https://twitter.com/EconomyApp
+
 # 26.02.2024 eriigist ja Googlest
 
 Laiemalt filosoofiline küsimus, kumb on parem või edumeelsem või kasutajasõbralikum ...
