@@ -3,7 +3,7 @@
 
 Eelmine logikanne oli laialt filosoofilistel teemadel (26.02.2024 eriigist ja Googlest). 
 
-Praktilismeta ja konkreetsemate küsimusetena püüaks vastust leida: 
+Praktilisemate ja konkreetsemate küsimustena püüaks vastust leida: 
 
 * GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja 
 
