@@ -7,7 +7,7 @@ Praktilismeta ja konkreetsemate küsimusetena püüaks vastust leida:
 
 * GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja 
 
-* gamil - kas jätkata gmaili konto kasutamist? Kuigi Google emaili kontol on palju plusse, siis on sellel ka omda miinused (). AI avab laiemlat võimalused uute ekirja teenusel põhinevate toodete loomiseks, olgu selleks siis tavalise eposti konto paremaks tegemine või mõni uus lahendus 
+* gmail - kas jätkata gmaili konto kasutamist? Kuigi Google emaili kontol on palju plusse, siis on sellel ka omad miinused (nt kui oled palju uudiskirju tellinud). AI avab laiemalt  võimalused uute ekirja teenusel põhinevate toodete loomiseks, olgu selleks siis tavalise eposti konto paremaks tegemine või mõni uus lahendus 
 
 Viiteks: 
 
