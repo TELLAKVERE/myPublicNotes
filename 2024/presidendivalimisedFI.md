@@ -4,6 +4,8 @@
 
 https://yle.fi/a/74-20077189
 
+Pildid https://yle.fi/a/74-20077193
+
 # 29.02.2024 Niinistö viimane päev presidendina
 
 01.03.2024 https://yle.fi/a/74-20076936
