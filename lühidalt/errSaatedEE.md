@@ -8,6 +8,8 @@ Terevisioon https://www.google.com/search?q=terevisioon
 
 Huvitaja https://www.google.com/search?q=huvitaja
 
+Võimla https://www.google.com/search?q=v%C3%B5imla+err
+
 ## Keskpäev
 
 Uudis+ https://www.google.com/search?q=uudis%2B
@@ -24,6 +26,6 @@ Ringvaade https://www.google.com/search?q=ringvaade
 
 ## Nädalavahetus
 
-Rahva teenrid https://www.google.com/search?q=vikerhommik
+Rahva teenrid https://www.google.com/search?q=rahva%20teenrid
 
 Kajalood https://www.google.com/search?q=kajalood 
