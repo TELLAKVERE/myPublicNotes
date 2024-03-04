@@ -1,5 +1,7 @@
 # Raadio + TV
 
+Päevakajalised saated - uudised, arvamused, poliitika, majandus, kultuur
+
 ## Hommik
 
 Vikerhommik https://www.google.com/search?q=vikerhommik
@@ -23,6 +25,8 @@ Reporteritund https://www.google.com/search?q=reporteritund
 Ringvaade https://www.google.com/search?q=ringvaade
 
 1.stuudio https://www.google.com/search?q=esimene%20stuudio
+
+Välisilm https://www.google.com/search?q=välisilm
 
 ## Nädalavahetus
 
