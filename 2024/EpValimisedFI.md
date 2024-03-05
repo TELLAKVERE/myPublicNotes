@@ -1,6 +1,18 @@
 
 **Europarlamendi valimistest**
 
+# 05.03.2024 SDP ja Soome
+
+Kaalusin, millist suunda võtta siinses kokkuvõttes
+
+* Soome, aga ka Eesti, Läti, Põhjamaad
+* Sotsiaaldemokraadid
+
+Mind ennast huvitaks laiemalt, pilt põhjamaades, aga ei oska kõiki neid keeli. Ei ole kursis nende maade poliitilise lähiajalooga. 
+
+Kitsamalt sotsiaaldemokraadid, kuna nad saavad EP-s kindlasti koondtulemusena, kõikide riikide peale kokku, hea tulemuse ning moodustavad parlamdendigrupi. 
+
+
 # 22.01.2024 Ettevõtjatest ja Europarlamendist
 
 Alustuseks siis hoopis suurem vaade. Postkasti potsatas "European Entrepreneurs Newsletter". Uhke. "Support Our Electoral Platform: A European Real Economy for a Realistic Industry Policy."
