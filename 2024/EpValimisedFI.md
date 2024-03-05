@@ -12,6 +12,7 @@ Mind ennast huvitaks laiemalt, pilt põhjamaades, aga ei oska kõiki neid keeli.
 
 Kitsamalt sotsiaaldemokraadid, kuna nad saavad EP-s kindlasti koondtulemusena, kõikide riikide peale kokku, hea tulemuse ning moodustavad parlamdendigrupi. 
 
+Huvitaks ka selline detail, et JU sai sisuliselt Soome pesidendivalimistel hävitava tulemuse. Kuidas edasi, mis on nende taktika. 
 
 # 22.01.2024 Ettevõtjatest ja Europarlamendist
 
