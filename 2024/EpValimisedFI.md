@@ -1,6 +1,12 @@
 
 # **Europarlamendi valimistest**
 
+# 05.03.2024 SDP viimasest katastroofist
+
+PK, ajaleht D, JU ja viimased valimsied. 
+https://twitter.com/Petri2020/status/1764574743737295007
+https://twitter.com/Petri2020/status/1763266452134498701
+
 # 05.03.2024 SDP ja Soome
 
 Kaalusin, millist suunda võtta siinses kokkuvõttes
