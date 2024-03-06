@@ -1,6 +1,10 @@
 
 # **Europarlamendi valimistest**
 
+# 06.03.2024 Ühe  ajajärgu lõpp
+
+LI, MO, SM, AS, AMH https://www.is.fi/politiikka/art-2000010272603.html
+
 # 05.03.2024 SDP viimasest katastroofist
 
 PK, ajaleht D, JU ja viimased valimsied. 
