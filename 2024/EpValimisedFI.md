@@ -1,6 +1,18 @@
-
 # **Europarlamendi valimistest**
 
+# 08.03.2024 Tööerakonnast
+
+Põhjamaades, sealhulgas ka Soomes, puudub tugev nö tööerakond, kes seisaks palgatööliste huvid eest, esindaks neid. 
+
+SDP pn seda olnud, aga oma rolli kaotanud PS-le. Kes esindavad pigem sinikraelisi, aga seda identiteedi mõttes. 
+
+Tööleping, töötingimused, platvormimajandus. Mitte stiilis "tõstame rusikad" nagu ametühing, vaid intellektuaalsemalt. 
+
+Pikemas vaates. Mõeldes nii ettevõtja kui ka palgatöötajate huvidele. 
+
+Võimalus Soome liberaalidele? @AmosAhola 
+
+Aga ka Eestis @Parempoolsed1 @ErakondEesti200
 
 # 08.03.2024 Sellest ja tollest, pigem tollest
 
