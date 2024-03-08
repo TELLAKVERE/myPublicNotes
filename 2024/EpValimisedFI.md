@@ -13,7 +13,7 @@ Kirjutasin et:
 > Huvitaks ka selline detail, et JU sai sisuliselt Soome pesidendivalimistel hävitava tulemuse. Kuidas edasi, mis on nende taktika. 
 
 
-Pigem ettevõtlus, selle regulatsioon, It ja selle gegulatsioon, AI, keskkonnakaitse. 
+Pigem ettevõtlus, selle regulatsioon, It ja selle regulatsioon, AI, keskkonnakaitse. 
 
 Muuhulgas peab kirjutama ka SDP-st, aga mitte peafookusena. 
 
