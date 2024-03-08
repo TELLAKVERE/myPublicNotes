@@ -1,6 +1,22 @@
 
 # **Europarlamendi valimistest**
 
+
+# 08.03.2024 Sellest ja tollest, pigem tollest
+
+Muutsin jälle fookust, SDP on küll oluline aga minu jaoks personaalslet mitte nii oluline. 
+
+Kirjutasin et: 
+
+> Fookuses ... kitsamalt sotsiaaldemokraadid, kuna nad saavad EP-s kindlasti koondtulemusena, kõikide riikide peale kokku, hea tulemuse ning moodustavad parlamdendigrupi. 
+
+> Huvitaks ka selline detail, et JU sai sisuliselt Soome pesidendivalimistel hävitava tulemuse. Kuidas edasi, mis on nende taktika. 
+
+
+Pigem ettevõtlus, selle regulatsioon, It ja selle gegulatsioon, AI, keskkonnakaitse. 
+
+Muuhulgas peab kirjutama ka SDP-st, aga mitte peafookusena. 
+
 # 06.03.2024 Ühe  ajajärgu lõpp
 
 LI, MO, SM, AS, AMH https://www.is.fi/politiikka/art-2000010272603.html
@@ -10,19 +26,6 @@ LI, MO, SM, AS, AMH https://www.is.fi/politiikka/art-2000010272603.html
 PK, ajaleht D, JU ja viimased valimsied. 
 https://twitter.com/Petri2020/status/1764574743737295007
 https://twitter.com/Petri2020/status/1763266452134498701
-
-# 05.03.2024 SDP ja Soome
-
-Kaalusin, millist suunda võtta siinses kokkuvõttes
-
-* Soome, aga ka Eesti, Läti, Põhjamaad
-* Sotsiaaldemokraadid
-
-Mind ennast huvitaks laiemalt, pilt põhjamaades, aga ei oska kõiki neid keeli. Ei ole kursis nende maade poliitilise lähiajalooga. 
-
-Kitsamalt sotsiaaldemokraadid, kuna nad saavad EP-s kindlasti koondtulemusena, kõikide riikide peale kokku, hea tulemuse ning moodustavad parlamdendigrupi. 
-
-Huvitaks ka selline detail, et JU sai sisuliselt Soome pesidendivalimistel hävitava tulemuse. Kuidas edasi, mis on nende taktika. 
 
 # 22.01.2024 Ettevõtjatest ja Europarlamendist
 
@@ -44,4 +47,4 @@ Võib mõõta keerukamate nõuete puhul, nagu tuleohutus, üldist raha- ja ajaku
 
 Kes: toivo.ellakvere@gmail.com
 Millal: 2024
-Mis: Europarlamendi valimistest, peamiselt SDP ja Soome vaates
+Mis: Europarlamendi valimistest, peamiselt Soome vaates
