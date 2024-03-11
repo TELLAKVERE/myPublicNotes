@@ -1,5 +1,13 @@
 # **Europarlamendi valimistest**
 
+# 11.03.2024 Reklaamidest
+
+Esimene reklaam, mida ma sotsiaalmeedias kohtasin, suht asjaliku sisuga. Realistlik, mõjukas. 
+
+EPP: Over 5,000 organised crime groups operate in the EU. The EPP Group proposes a robust response: Transforming Europol into a stronger operational European Police Force actively combating organised crime threats on the ground.
+https://www.eppgroup.eu/what-we-stand-for/our-impact/organised-crime-requires-a-common-european-response
+
+
 # 08.03.2024 Tööerakonnast
 
 Põhjamaades, sealhulgas ka Soomes, puudub tugev nö tööerakond, kes seisaks palgatööliste huvid eest, esindaks neid. 
