@@ -1,5 +1,14 @@
 # **Europarlamendi valimistest**
 
+# Märts 2024: plussid ja miinused
+
+Väike kokuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkinud. 
+
+Plussid: 
+* EPP kampaania, Europolile rohkem õigusi. 
+
+Miinused: ...
+
 # 12.03.2024 15 aastat
 
 Seekord siis viide HT jutusaatele / wiki laadsetele artiklile / monoloogile / "vana mees raadios räägib" saatele. 
@@ -27,6 +36,8 @@ Esimene reklaam, mida ma sotsiaalmeedias kohtasin, suht asjaliku sisuga. Realist
 
 EPP: Over 5,000 organised crime groups operate in the EU. The EPP Group proposes a robust response: Transforming Europol into a stronger operational European Police Force actively combating organised crime threats on the ground.
 https://www.eppgroup.eu/what-we-stand-for/our-impact/organised-crime-requires-a-common-european-response
+
+Oot: milliseid õigusi siis täpsemalt, ja mille jaoks. Kas seniseid õigusi on heaperemehelikult kasutatud. 
 
 Mis on EPP? https://et.wikipedia.org/wiki/Euroopa_Rahvapartei_fraktsioon Mis on Europol? https://et.wikipedia.org/wiki/Europol
 
