@@ -9,7 +9,7 @@ https://jupiter.err.ee/1609274504/harri-tiido-taustajutud-mis-on-poliitikas-vale
 
 Alastair Campbell: populismist, polariseerumisest, eliidist, pankuritest, "vastutusele võtmisest", meie vs nemad jms. 
 
-Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumist, Berlusconist. Jõuti ka fašismini. 
+Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumpist, Berlusconist. Jõuti ka fašismini. 
 
 Ei tea, ma ei ole "vana tark mees", habe ei ole piisavalt hall,  liiga palju heietati populismist ja polariseerumisest. 
 
