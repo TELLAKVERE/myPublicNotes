@@ -1,5 +1,24 @@
 # **Europarlamendi valimistest**
 
+# 12.03.2024 15 aastat
+
+Seekord siis viide HT jutusaatele / wiki laadsetele artiklitele / "vana mees raadios räägib" saadetele. 
+
+HT: Mis on poliitikas valesti ja mida teha?
+https://jupiter.err.ee/1609274504/harri-tiido-taustajutud-mis-on-poliitikas-valesti-ja-mida-teha
+
+Alastair Campbell: populismist, polariseerumisest, eliidist, pankuritest, "vastutusele võtmisest", meie vs nemad jms. 
+
+Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumist, Berlusconist. Jõuti ka fašismini. 
+
+Ei tea, ma ei ole "vana tark mees", habe ei ole piisavalt hall,  liiga palju heietati populismist ja polariseerumisest. 
+
+"Poliitika on tõeliselt huvitav". Kas see oli otsene tsitaat AC-lt?
+
+Kõige ilmseim puudujääk tundub demokraatia puhul rahva esindajaile, saadikutele,  seatud lühiajaline valitsemisperiood, sagedased valimised. 
+
+Kas EP parlament võiks töötada 15 aastat? Siis peaks lisanduma saadiku usaldamatushääletus, ehk võimalus saadik tagasi kutsuda. 
+
 # 11.03.2024 Reklaamidest
 
 Esimene reklaam, mida ma sotsiaalmeedias kohtasin, suht asjaliku sisuga. Realistlik, mõjukas. 
