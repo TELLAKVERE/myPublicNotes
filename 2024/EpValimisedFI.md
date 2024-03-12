@@ -2,7 +2,7 @@
 
 # 12.03.2024 15 aastat
 
-Seekord siis viide HT jutusaatele / wiki laadsetele artiklitele / "vana mees raadios räägib" saadetele. 
+Seekord siis viide HT jutusaatele / wiki laadsetele artiklile / monoloogile / "vana mees raadios räägib" saatele. 
 
 HT: Mis on poliitikas valesti ja mida teha?
 https://jupiter.err.ee/1609274504/harri-tiido-taustajutud-mis-on-poliitikas-valesti-ja-mida-teha
