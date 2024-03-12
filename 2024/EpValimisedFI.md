@@ -19,7 +19,7 @@ Tsitaate: "poliitika on tõeliselt huvitav". Kas see oli otsene tsitaat AC-lt?
 
 Kõige ilmseim puudujääk tundub demokraatia puhul rahva esindajaile, saadikutele,  seatud lühiajaline valitsemisperiood, sagedased valimised. 
 
-Kas EP parlament võiks töötada 15 aastat? Siis peaks lisanduma saadiku usaldamatushääletus, ehk võimalus saadik tagasi kutsuda. 
+Kas EP ehk  parlament võiks töötada 15 aastat? Siis peaks lisanduma saadiku usaldamatushääletus, ehk võimalus saadik tagasi kutsuda. 
 
 # 11.03.2024 Reklaamidest
 
