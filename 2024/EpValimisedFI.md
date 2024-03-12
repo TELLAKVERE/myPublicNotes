@@ -13,7 +13,7 @@ Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumist, Berlusconist. J�
 
 Ei tea, ma ei ole "vana tark mees", habe ei ole piisavalt hall,  liiga palju heietati populismist ja polariseerumisest. 
 
-Saku kordi kuuldud liberaalne hala, ütleks vististi veendunud EPP valija. 
+Sadu kordi kuuldud liberaalne hala, ütleks vististi veendunud EPP valija. 
 
 Tsitaate: "poliitika on tõeliselt huvitav". Kas see oli otsene tsitaat AC-lt?
 
