@@ -13,7 +13,9 @@ Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumist, Berlusconist. J�
 
 Ei tea, ma ei ole "vana tark mees", habe ei ole piisavalt hall,  liiga palju heietati populismist ja polariseerumisest. 
 
-"Poliitika on t천eliselt huvitav". Kas see oli otsene tsitaat AC-lt?
+Saku kordi kuuldud liberaalne hala, 체tleks vististi veendunud EPP valija. 
+
+Tsitaate: "poliitika on t천eliselt huvitav". Kas see oli otsene tsitaat AC-lt?
 
 K천ige ilmseim puuduj채채k tundub demokraatia puhul rahva esindajaile, saadikutele,  seatud l체hiajaline valitsemisperiood, sagedased valimised. 
 
