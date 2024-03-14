@@ -13,9 +13,7 @@ Miinused: ...
 
 # 14.03.2024 Progressiivsetest inimestest
 
-Vaatasin et SDP on Twitteris endal hõivanud progressi eest võitlejate aunimetuse. Stalin kiidab heaks. 
-
-Eriti hea, et seda tehakse kapitalistlikul Twitteri platvormil (omanik ametiühingute vastane ettevõtja Musk). 
+Vaatasin et SD parlamendigrupp on Twitteris valinud endale sellise nimetuse ...  
 
 @TheProgressives  https://twitter.com/TheProgressives 
 
@@ -23,7 +21,7 @@ Eriti hea, et seda tehakse kapitalistlikul Twitteri platvormil (omanik ametiühi
 
 Sotsiaaldemokraadid pahandavad KK-ga. Kas platvormi vahendusel endale  tööd ja leiba teenivad  inimesed (kullerid, taksojuhid) on palgatöölised või ettevõtjad. Viide sellele, et B peakontor on Eestis. 
 
-Sotsiaaldemokraatide sõnum Instagrammis (moe- ja turismiinfluentserite platvormil, mida arendab Zuckerberg, peakorter USA-s): 
+Sotsiaaldemokraatide sõnum Instagrammis: 
 
 We have a historic opportunity to adopt the first ever EU law on platform work to protect all workers in the digital era and safeguard the European economy and social model.
 
