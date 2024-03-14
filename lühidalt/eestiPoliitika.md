@@ -4,9 +4,9 @@
 ## Kas Kaja Kallas on peaminister? Jah
 
 www.kaskajakallasonpeaminister.ee
-Vt idavedude skandaal
+Vt idavedude skandaal (2023)
 
 ## Kas Kristen Michal on minister? Jah
 
 www.kaskristenmichalonminister.ee
-Vt erakondade  rahastamise skandaal
+Vt erakondade  rahastamise skandaal (2012)
