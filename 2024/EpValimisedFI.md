@@ -23,7 +23,7 @@ Eriti hea, et seda tehakse kapitalistlikul Twitteri platvormil (omanik ametiühi
 
 Sotsiaaldemokraadid pahandavad KK-ga. Kas platvormi vahendusel endale  tööd ja leiba teenivad  inimesed (kullerid, taksojuhid) on palgatöölised või ettevõtjad. Viide sellele, et B peakontor on Eestis. 
 
-Sotsiaaldemokraatide sõnum Instagrammis (moe- ja turismiinfluentserite platvromil: 
+Sotsiaaldemokraatide sõnum Instagrammis (moe- ja turismiinfluentserite platvormil, mida arendab Zuckerberg, peakorter USA-s): 
 
 We have a historic opportunity to adopt the first ever EU law on platform work to protect all workers in the digital era and safeguard the European economy and social model.
 
