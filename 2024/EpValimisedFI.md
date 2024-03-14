@@ -11,7 +11,7 @@ Plussid:
 Miinused: ...
 
 
-14.03.2024 Progressiivsetest inimestest
+# 14.03.2024 Progressiivsetest inimestest
 
 Vaatasin et SDP on Twitteris endal hõivanud progressi eest võitlejate aunimetuse. Stalin kiidab heaks. 
 
@@ -19,7 +19,7 @@ Eriti hea, et seda tehakse kapitalistlikul Twitteri platvormil (omanik ametiühi
 
 @TheProgressives  https://twitter.com/TheProgressives 
 
-14.03.2024 Tüli tõukerataste pärast
+# 14.03.2024 Tüli tõukerataste pärast
 
 Sotsiaaldemokraadid pahandavad KK-ga. Kas platvormi vahendusel endale  tööd ja leiba teenivad  inimesed (kullerid, taksojuhid) on palgatöölised või ettevõtjad. Viide sellele, et B peakontor on Eestis. 
 
