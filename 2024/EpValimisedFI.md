@@ -13,7 +13,7 @@ Miinused:
 
 # 15.03.2024 Piduritest
 
-Eesti konservatiivid (RT) vaidlustavad retoorikas inimtekkelise kliimasoonemise. 
+Eesti konservatiivid (RT) vaidlustavad retoorikas inimtekkelise kliimasoojemise. 
 
 RT: "See on ideoloogiast juhitud debatt ..." *
 
