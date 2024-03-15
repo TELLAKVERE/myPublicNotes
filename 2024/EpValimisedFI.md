@@ -3,7 +3,7 @@
 
 # Märts 2024: plussid ja miinused
 
-Väike kokuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkinud. 
+Väike kokkuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkinud. 
 
 Plussid: 
 * konservatiivide kampaania, Europolile rohkem õigusi. 
