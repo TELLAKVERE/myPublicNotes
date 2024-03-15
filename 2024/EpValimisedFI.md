@@ -6,7 +6,7 @@
 Väike kokuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkinud. 
 
 Plussid: 
-* EPP kampaania, Europolile rohkem õigusi. 
+* konservatiivide kampaania, Europolile rohkem õigusi. 
 
 Miinused: 
 * Riho Terras (konseravatiivid) ja kliimaadlaste eiramine
