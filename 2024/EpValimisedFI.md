@@ -8,8 +8,18 @@ Väike kokuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkinu
 Plussid: 
 * EPP kampaania, Europolile rohkem õigusi. 
 
-Miinused: ...
+Miinused: 
+* Riho Terras (konseravatiivid) ja kliimaadlaste eiramine
 
+# 15.03.2024 Piduritest
+
+Eesti konservatiivid (RT) vaidlustavad retoorikas inimtekkelise kliimasoonemise. 
+
+RT: "See on ideoloogiast juhitud debatt ..." *
+
+*Kliimamuutuse hind. Isamaa Tallinn. RT, JA jt. 
+
+Ok, RT RT-ks, aga JA?
 
 # 14.03.2024 Progressiivsetest inimestest
 
