@@ -9,7 +9,7 @@ Plussid:
 * konservatiivide kampaania, Europolile rohkem õigusi. 
 
 Miinused: 
-* Riho Terras (konseravatiivid) ja kliimaadlaste eiramine
+* Riho Terras (konseravatiivid) ja kliimateadlaste eiramine
 
 # 15.03.2024 Piduritest
 
