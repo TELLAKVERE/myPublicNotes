@@ -7,9 +7,12 @@ Väike kokkuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkin
 
 Plussid: 
 * konservatiivide kampaania, Europolile rohkem õigusi. 
-
 Miinused: 
 * Riho Terras (konseravatiivid) ja kliimateadlaste eiramine
+
+# Märts 2024
+
+* 16.03.2024 SDE kndidaadid: Marina Kaljurand, Sven Mikser, Katri Raik, Tanel Kiik, Riina Sikkut, Ivari Padar, Natalie Mets, Vootele Päi ja Jevgeni Ossinovsk ()
 
 # 15.03.2024 Piduritest
 
@@ -18,8 +21,6 @@ Eesti konservatiivid (RT) vaidlustavad retoorikas inimtekkelise kliimasoojemise.
 RT: "See on ideoloogiast juhitud debatt ..." *
 
 *Kliimamuutuse hind. Isamaa Tallinn. RT, JA jt. 
-
-Ok, RT RT-ks, aga JA?
 
 # 14.03.2024 Progressiivsetest inimestest
 
