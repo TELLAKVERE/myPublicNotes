@@ -7,6 +7,7 @@ Väike kokkuvõte valimisteemadest, kampaaniast ja debatist. Mis on esile kerkin
 
 Plussid: 
 * konservatiivide kampaania, Europolile rohkem õigusi. 
+
 Miinused: 
 * Riho Terras (konseravatiivid) ja kliimateadlaste eiramine
 
