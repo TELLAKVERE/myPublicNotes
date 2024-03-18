@@ -24,20 +24,14 @@ Vaatasin et SD parlamendigrupp on Twitteris valinud endale sellise nimetuse ...
 
 # 12.03.2024 15 aastat
 
-Seekord siis viide HT jutusaatele / wiki laadsetele artiklile / monoloogile / "vana mees raadios räägib" saatele. 
+Seekord siis viide HT  saatele. 
 
 HT: Mis on poliitikas valesti ja mida teha?
 https://jupiter.err.ee/1609274504/harri-tiido-taustajutud-mis-on-poliitikas-valesti-ja-mida-teha
 
-Alastair Campbell: populismist, polariseerumisest, eliidist, pankuritest, "vastutusele võtmisest", meie vs nemad jms. 
+HT viitab Alastair Campbelli raamatule ja räägib järgmistets teemadest: populismist, polariseerumisest, eliidist, pankuritest, "vastutusele võtmisest", meie vs nemad jms. Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumpist, Berlusconist. Jõuti ka fašismini. 
 
-Aga ka: sadismist, sado-masohhismist. Nagu tavaliselt: Trumpist, Berlusconist. Jõuti ka fašismini. 
-
-Ei tea, ma ei ole "vana tark mees", habe ei ole piisavalt hall,  liiga palju heietati populismist ja polariseerumisest. 
-
-Sadu kordi kuuldud liberaalne hala, ütleks vististi veendunud EPP valija. 
-
-Tsitaate: "poliitika on tõeliselt huvitav". Kas see oli otsene tsitaat AC-lt?
+Heietati vast liiga palju populismi ja polariseerumise teemadel. 
 
 Kõige ilmseim puudujääk tundub demokraatia puhul rahva esindajaile, saadikutele,  seatud lühiajaline valitsemisperiood, sagedased valimised. 
 
@@ -79,7 +73,7 @@ Kirjutasin et:
 > Huvitaks ka selline detail, et JU sai sisuliselt Soome pesidendivalimistel hävitava tulemuse. Kuidas edasi, mis on nende taktika. 
 
 
-Pigem ettevõtlus, selle regulatsioon, It ja selle regulatsioon, AI, keskkonnakaitse. 
+Tahaks siin siiski kirjutada pigem järgmistest teemadest:  ettevõtlus, selle regulatsioon, It ja selle regulatsioon, AI, keskkonnakaitse. 
 
 Muuhulgas peab kirjutama ka SDP-st, aga mitte peafookusena. 
 
