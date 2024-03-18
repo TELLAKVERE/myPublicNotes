@@ -12,6 +12,14 @@ Miinused:
 ...
 
 
+# 18.03.2024 Pranstusmaa vs Rootsi
+
+AV vaade, kuidas eri EL riigid lahendasid probleeme erinevalt. 
+
+Tagaasivaateks, näiteks, et  koroonapandeemiast me ei õppinud midagi. 
+
+https://www.sirp.ee/s1-artiklid/c9-sotsiaalia/taanis-oli-viimased-neli-aastat-mitu-korda-ohutum-viibida-kui-suurbritannias
+
 # 18.03.2024 Finantsettevõtete liidu vaade
 
 Mitmesugused seisukohad EL poliitika suhtes. https://twitter.com/finanssiala/status/1768537979717337336 https://twitter.com/finanssiala/status/1769649742198256018 https://twitter.com/finanssiala/status/1768636581114515601
