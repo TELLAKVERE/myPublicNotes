@@ -14,8 +14,7 @@ Miinused:
 
 # 18.03.2024 Finanstettevõtete liidu vaade
 
-
-https://twitter.com/finanssiala/status/1768537979717337336
+Mitmesugused seisukohad EL poliitika suhtes. https://twitter.com/finanssiala/status/1768537979717337336 https://twitter.com/finanssiala/status/1769649742198256018 https://twitter.com/finanssiala/status/1768636581114515601
 
 # 14.03.2024 Progressiivsetest inimestest
 
