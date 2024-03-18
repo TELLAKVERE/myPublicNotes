@@ -9,40 +9,19 @@ Plussid:
 * konservatiivide kampaania, Europolile rohkem õigusi. 
 
 Miinused: 
-* Riho Terras (konseravatiivid) ja kliimateadlaste eiramine
+...
 
-# Märts 2024
 
-* 16.03.2024 SDE kndidaadid: Marina Kaljurand, Sven Mikser, Katri Raik, Tanel Kiik, Riina Sikkut, Ivari Padar, Natalie Mets, Vootele Päi ja Jevgeni Ossinovsk ()
+# 18.03.2024 Finanstettevõtete liidu vaade
 
-# 15.03.2024 Piduritest
 
-Eesti konservatiivid (RT) vaidlustavad retoorikas inimtekkelise kliimasoojemise. 
-
-RT: "See on ideoloogiast juhitud debatt ..." *
-
-*Kliimamuutuse hind. Isamaa Tallinn. RT, JA jt. 
+https://twitter.com/finanssiala/status/1768537979717337336
 
 # 14.03.2024 Progressiivsetest inimestest
 
 Vaatasin et SD parlamendigrupp on Twitteris valinud endale sellise nimetuse ...  
 
 @TheProgressives  https://twitter.com/TheProgressives 
-
-# 14.03.2024 Tüli tõukerataste pärast
-
-Sotsiaaldemokraadid pahandavad KK-ga. Kas platvormi vahendusel endale  tööd ja leiba teenivad  inimesed (kullerid, taksojuhid) on palgatöölised või ettevõtjad. Viide sellele, et B peakontor on Eestis. 
-
-Sotsiaaldemokraatide sõnum Instagrammis: 
-
-We have a historic opportunity to adopt the first ever EU law on platform work to protect all workers in the digital era and safeguard the European economy and social model.
-
-Prime minister KK, do you really want to surrender to the interests of B, headquartered in your country?
-
-As the leader of a digital champion, do you really want to block the protection of workers, and disrupt the European economy and social model in the digital era?
-
-It’s time to deliver - for the people of Estonia and Europe. Prime Minister Kallas, unblock this historic law on platform work!
-
 
 # 12.03.2024 15 aastat
 
