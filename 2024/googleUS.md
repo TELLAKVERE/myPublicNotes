@@ -1,4 +1,12 @@
 
+# 19.03.2024 AI Apple jaoks
+
+Kui palju ettevõtte väärtusest moodustavada AI arendused? st kui palju pannakse raha R&D alla ja kui palju sellega tagasi teenitakse ...
+
+Ennem määras suurte tec ettevõtete kasvu ära pilvelahenduste kasutamine, nüüdseks peab investor veel hindama AI kasutmist. 
+
+Uudistes, et Apple hakkab kasutama Google Gemini tooteid. 
+
 # 27.02.2024 Google 2.0.24
 
 Eelmine logikanne oli laialt filosoofilistel teemadel (26.02.2024 eriigist ja Googlest). 
