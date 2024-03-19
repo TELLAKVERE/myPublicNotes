@@ -1,11 +1,17 @@
 
+
+# 19.03.2024 Hindamisest 
+
+Kuidas hinnata tech aktsiaid? https://twitter.com/EconomyApp/status/1769530659771658430
+Tasu 18 eur kuus. https://www.appeconomyinsights.com/subscribe
+
 # 19.03.2024 AI Apple jaoks
 
-Kui palju ettevõtte väärtusest moodustavada AI arendused? st kui palju pannakse raha R&D alla ja kui palju sellega tagasi teenitakse ...
+Kui palju ettevõtte turuväärtusest moodustavadaAI arendused? st kui palju pannakse raha R&D alla ja kui palju sellega tagasi teenitakse ...
 
-Ennem määras suurte tec ettevõtete kasvu ära pilvelahenduste kasutamine, nüüdseks peab investor veel hindama AI kasutmist. 
+Ennem määras suurte tech ettevõtete kasvu ära pilvelahenduste kasutamine, nüüdseks peab investor lisaks veel hindama AI kasutamist ja potentsiaali. 
 
-Uudistes, et Apple hakkab kasutama Google Gemini tooteid. 
+Uudistes, et Apple hakkab kasutama Google Gemini tooteid.  
 
 # 27.02.2024 Google 2.0.24
 
