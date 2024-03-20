@@ -52,6 +52,24 @@ Minu personaalne ajalugu: kasutan Gmaili alates 25.08.2005. Vähemalt leidisn se
 
 Seega varsti 20 aastat. 
 
+# GOOG
+
+Kas investeerida GOOG aktsiasse?
+
+Tuleks hinnata järgmisi tegureid
+
+Tehnoloogiad:
+* pilvalahenduste kasv
+* pilvelahendus vs tavalahendus
+* AI võimalused (äriliselt hetkel raske hinnata)
+
+Mobiilid: 
+* Apple vs Android
+  
+Väärtused: 
+* ettevõtte tegutsemiskultuur
+* juhtimiskultuur
+
 # Kes, mis
  
 Kes: toivo.ellakvere@gmail.com Millest: GOOG, tooted ja tulevikuperspektiiv. vt ka https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#27022024-google-2024
