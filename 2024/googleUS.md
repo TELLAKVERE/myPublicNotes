@@ -1,7 +1,7 @@
 
 # 20.03.2024 Rauhulolematust kiendist
 
-Lisaks plevaatele Google finantsidets, investorvaatele sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
+Lisaks ülevaatele Google finantsidest, investorvaatele sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
 
 Kuna olen olnud pikalt Google tooteperekonna kasutaja, aga viimasel ajal ei ole nendega rahul. Pisiasjad, aga ikkagi on neid piisavalt palju ja piisavalt valusad et märgata. 
 
@@ -16,6 +16,10 @@ https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#goog-toot
 
 Kuidas hinnata tech aktsiaid? https://twitter.com/EconomyApp/status/1769530659771658430
 Tasu 18 eur kuus. https://www.appeconomyinsights.com/subscribe
+
+Pensionifondid investeerivad päris palju oma protfellist suurtesse USA tech firmadesse, nii et kui sa ise otse ei investeeri, siis peaks ikkagi oma pensionifondi tulevikul silma peal pidama. 
+
+Sinu pension sõltub Google ärikasvust ja kasumist. 
 
 # 19.03.2024 AI Apple jaoks
 
@@ -98,6 +102,9 @@ Tooted:
 
 Konkurendid
 * otsinugumootorid
+
+Makro
+* USA vs Euroopa
   
 # Kes, mis
  
