@@ -63,7 +63,7 @@ Minu personaalne ajalugu: kasutan Gmaili alates 25.08.2005. Vähemalt leidisn se
 
 Seega varsti 20 aastat. 
 
-# GOOG
+# GOOG, äriline vaade
 
 Kas investeerida GOOG aktsiasse?
 
@@ -84,7 +84,14 @@ Väärtused:
   
 Roheline vaade: 
 * keskkonna mõju, jalajälg
-  
+
+# GOOG, tootevaade
+
+* Gmail
+* Google sites
+* Google Docs ja Google Drive
+* AI (Gemini)
+
 # Kes, mis
  
 Kes: toivo.ellakvere@gmail.com Millest: GOOG, tooted ja tulevikuperspektiiv. vt ka https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#27022024-google-2024
