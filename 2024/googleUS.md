@@ -31,8 +31,6 @@ Uudistes, et Apple hakkab kasutama Google Gemini tooteid.
 
 # 27.02.2024 Google 2.0.24
 
-Eelmine logikanne oli laialt filosoofilistel teemadel (26.02.2024 eriigist ja Googlest). 
-
 Praktilisemate ja konkreetsemate küsimustena püüaks vastust leida: 
 
 * GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja turutrendidest 
