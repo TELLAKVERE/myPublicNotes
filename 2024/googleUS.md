@@ -88,11 +88,17 @@ Roheline vaade:
 
 # GOOG, tootevaade
 
+Kas Googlet saaks paremaks teha? Kas saab teha Googlele konkurendi?
+
+Tooted: 
 * Gmail
 * Google sites
 * Google Docs ja Google Drive
 * AI (Gemini)
 
+Konkurendid
+* otsinugumootorid
+  
 # Kes, mis
  
 Kes: toivo.ellakvere@gmail.com Millest: GOOG, tooted ja tulevikuperspektiiv. vt ka https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#27022024-google-2024
