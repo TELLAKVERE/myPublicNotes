@@ -1,15 +1,16 @@
 
-# Rauhulolematust kiendist
+# 20.03.2024 Rauhulolematust kiendist
 
-Lisaks Google ülevaatele finantsilistest ja investorvaates sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
+Lisaks plevaatele Google finantsidets, investorvaatele sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
 
-Kuna olen olnud pikalt Google tooteperekonna kasutaja, aga viimasel ajal ei ole nendega rahul. Pisiasjad, aga ikkagi on neid piisavaly palju ja piisavalt valusad et märgata. 
+Kuna olen olnud pikalt Google tooteperekonna kasutaja, aga viimasel ajal ei ole nendega rahul. Pisiasjad, aga ikkagi on neid piisavalt palju ja piisavalt valusad et märgata. 
 
-Google ise tõenäolislet ei märkagi seda et üks trema miljonist kliendits on tema tooteid kasutades pahur. 
+Google ise tõenäolislet ei märkagi seda et üks tema miljonist kliendits on tema tooteid kasutades pahur. 
 
-Seega, tootearenduse vaade. 
 
-https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#goog
+https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#goog-äriline-vaade
+
+https://github.com/TELLAKVERE/myPublicNotes/blob/main/2024/googleUS.md#goog-tootevaade
 
 # 19.03.2024 Hindamisest 
 
