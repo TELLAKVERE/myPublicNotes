@@ -19,7 +19,7 @@ Eelmine logikanne oli laialt filosoofilistel teemadel (26.02.2024 eriigist ja Go
 
 Praktilisemate ja konkreetsemate küsimustena püüaks vastust leida: 
 
-* GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja 
+* GOOG - kas ja kui palju investeerida GOOG aktsiasse? Kas tasub ära, kas on veel tõusupotsentsiaali? see potsentsiaal sõltub ka Google enda tehnoloogiavalikutest ja turutrendidest 
 
 * gmail - kas jätkata gmaili konto kasutamist? Kuigi Google emaili kontol on palju plusse, siis on sellel ka omad miinused (nt kui oled palju uudiskirju tellinud). AI avab laiemalt  võimalused uute ekirja teenusel põhinevate toodete loomiseks, olgu selleks siis tavalise eposti konto paremaks tegemine või mõni uus lahendus 
 
