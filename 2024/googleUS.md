@@ -1,5 +1,5 @@
 
-# 20.03.2024 Rauhulolematust kiendist
+# 20.03.2024 Rauhulolematust kliendist
 
 Lisaks ülevaatele Google finantsidest, investorvaatele sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
 
