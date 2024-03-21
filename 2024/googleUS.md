@@ -1,4 +1,14 @@
 
+# 21.03.2024 Võrdlusbaasist
+
+Tegelikult peaks alati võrldlema millegagi, olema mingi võrdlusbaas. Aga siin ma olen raskustes ...
+
+Google vs Apple  (kasutusmugavus ja mobiilid)
+Google vs Microsoft vs Amazon (pilvelahendused serveritele)
+Google vs Amazon (voogedastus, filmid, seriaalid ja videod) NB! Amazon pakub Prime teenust
+Google vs Microsoft (kontoritarkvara, sh pilvelahendused) NB! ma ei tea kas selles vallas enam konkureeritakse, väga baasteenus
+Google vs Facebook (sostiaalmeedia) NB! jah, Google eksperimendid sostiaalmeediaga on seni läbi kukkunud, vt Google Circles
+
 # 20.03.2024 Rauhulolematust kliendist
 
 Lisaks ülevaatele Google finantsidest, investorvaatele sooviks siia lisada ka kasutajavaate (UX, UI), sooviks kirjutada ka tootearenduse võimalustest.
