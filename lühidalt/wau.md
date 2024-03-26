@@ -5,6 +5,6 @@
 
 # Roboteid saab kontaktivabalt laadida
 
-https://www.linkedin.com/posts/starshiptechnologies_a-european-first-were-launching-wireless-activity-7177019552453599233-vxTC
+Starship: https://www.linkedin.com/posts/starshiptechnologies_a-european-first-were-launching-wireless-activity-7177019552453599233-vxTC
 
 
